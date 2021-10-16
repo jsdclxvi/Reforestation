@@ -24,8 +24,8 @@ jobs:
       - name: Commit changes
         run: |
           ${{ secrets.cr }}
-          git config --local user.email "angga@linuxmail.org"
-          git config --local user.name "Angga"
+          git config --local user.email "risa@smk-binaprofesibgr.sch.id"
+          git config --local user.name "Ji Soo"
           git add -A
           git commit -s -am "$(curl -s http://whatthecommit.com/index.txt)"
           
