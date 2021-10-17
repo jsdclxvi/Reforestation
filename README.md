@@ -1,1 +1,1 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## I burned 2000 calories today, I left my food in the oven for too long.
