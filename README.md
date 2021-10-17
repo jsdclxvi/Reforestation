@@ -1,1 +1,2 @@
-## I used to think I was indecisive, but now I'm not sure.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
