@@ -1,1 +1,1 @@
-## I burned 2000 calories today, I left my food in the oven for too long.
+## Me and my mates are in a band called Duvet. We're a cover band.
