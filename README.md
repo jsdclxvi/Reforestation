@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## A magician was driving down the street and then he turned into a driveway.
