@@ -1,1 +1,1 @@
-## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
+## My first time using an elevator was an uplifting experience. The second time let me down.
