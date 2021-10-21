@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
