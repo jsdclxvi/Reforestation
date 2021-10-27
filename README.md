@@ -1,1 +1,1 @@
-## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
