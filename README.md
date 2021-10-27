@@ -1,1 +1,1 @@
-## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
+## How come a man driving a train got struck by lightning? He was a good conductor.
