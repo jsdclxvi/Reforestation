@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## Thanks for explaining the word "many" to me. It means a lot.
