@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## Why do pirates not know the alphabet? They always get stuck at "C".
