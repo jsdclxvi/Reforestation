@@ -1,1 +1,1 @@
-## Me and my mates are in a band called Duvet. We're a cover band.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
