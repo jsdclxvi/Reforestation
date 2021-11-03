@@ -1,1 +1,1 @@
-## Two silk worms had a race. They ended up in a tie.
+## Have you ever heard of a music group called Cellophane? They mostly wrap.
