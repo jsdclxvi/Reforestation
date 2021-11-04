@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
