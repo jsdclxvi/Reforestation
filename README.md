@@ -1,1 +1,2 @@
-## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
