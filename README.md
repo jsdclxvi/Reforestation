@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
