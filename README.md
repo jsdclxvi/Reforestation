@@ -1,1 +1,1 @@
-## Why are basketball players messy eaters? Because they are always dribbling.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
