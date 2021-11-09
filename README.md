@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## I had a dream that I was a muffler last night. I woke up exhausted!
