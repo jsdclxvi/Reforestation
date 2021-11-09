@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
