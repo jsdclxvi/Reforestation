@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
