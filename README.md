@@ -1,1 +1,1 @@
-## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
