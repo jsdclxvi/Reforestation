@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## I'm tired of following my dreams. I'm just going to ask them where they are going and meet up with them later.
