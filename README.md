@@ -1,1 +1,1 @@
-## The rotation of earth really makes my day.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
