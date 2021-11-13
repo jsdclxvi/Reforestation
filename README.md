@@ -1,1 +1,1 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## What do you call a troublesome Canadian high schooler? A poutine.
