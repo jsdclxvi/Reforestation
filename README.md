@@ -1,1 +1,1 @@
-## What do you call a group of killer whales playing instruments? An Orca-stra.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
