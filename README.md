@@ -1,1 +1,1 @@
-## Why do fish live in salt water? Because pepper makes them sneeze!
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
