@@ -1,1 +1,1 @@
-## What do vegetarian zombies eat? Grrrrrainnnnnssss.
+## Why do fish live in salt water? Because pepper makes them sneeze!
