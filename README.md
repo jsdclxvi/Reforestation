@@ -1,1 +1,1 @@
-## What kind of tree fits in your hand? A palm tree!
+## Why did the tomato blush? Because it saw the salad dressing.
