@@ -1,1 +1,1 @@
-## Have you ever heard of a music group called Cellophane? They mostly wrap.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
