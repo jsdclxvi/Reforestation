@@ -1,1 +1,1 @@
-## Never take advice from electrons. They are always negative.
+## What kind of tree fits in your hand? A palm tree!
