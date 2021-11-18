@@ -1,1 +1,1 @@
-## Yesterday a clown held a door open for me. I thought it was a nice jester.
+## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
