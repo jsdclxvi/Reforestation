@@ -1,1 +1,2 @@
-## I was going to get a brain transplant, but I changed my mind
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
