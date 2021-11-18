@@ -1,1 +1,1 @@
-## It takes guts to be an organ donor.
+## What do you call corn that joins the army? Kernel.
