@@ -1,1 +1,1 @@
-## How many tickles does it take to tickle an octopus? Ten-tickles!
+## Why did the man put his money in the freezer? He wanted cold hard cash!
