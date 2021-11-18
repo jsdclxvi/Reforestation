@@ -1,2 +1,1 @@
-## Q: What did the spaghetti say to the other spaghetti?
-## A: Pasta la vista, baby!
+## How many tickles does it take to tickle an octopus? Ten-tickles!
