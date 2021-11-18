@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## I was wondering why the frisbee was getting bigger, then it hit me.
