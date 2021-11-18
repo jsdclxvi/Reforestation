@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
