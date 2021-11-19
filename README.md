@@ -1,1 +1,1 @@
-## Did you hear about the cheese who saved the world? It was Legend-dairy!
+## Have you ever heard of a music group called Cellophane? They mostly wrap.
