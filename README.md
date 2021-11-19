@@ -1,1 +1,3 @@
-## I saw a documentary on TV last night about how they put ships together.  It was rivetting.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
