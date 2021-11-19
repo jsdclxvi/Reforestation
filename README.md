@@ -1,1 +1,1 @@
-## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
