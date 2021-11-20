@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
