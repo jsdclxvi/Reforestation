@@ -1,1 +1,1 @@
-## I used to be a banker, but I lost interest.
+## I thought about going on an all-almond diet. But that's just nuts.
