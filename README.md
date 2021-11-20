@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
