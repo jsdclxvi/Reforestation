@@ -1,1 +1,1 @@
-## If you walk into a forest and cut down a tree, but the tree doesn't understand why you cut it down, do you think it's stumped?
+## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
