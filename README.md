@@ -1,1 +1,1 @@
-## Did you hear the one about the guy with the broken hearing aid? Neither did he.
+## Did you know that ghosts call their true love their ghoul-friend?
