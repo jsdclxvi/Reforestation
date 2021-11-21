@@ -1,1 +1,1 @@
-## What do you call a bear with no teeth? A gummy bear!
+## If a child refuses to sleep during nap time, are they guilty of resisting a rest?
