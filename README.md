@@ -1,1 +1,1 @@
-## What kind of music do mummy's like? Rap
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
