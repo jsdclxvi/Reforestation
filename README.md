@@ -1,1 +1,1 @@
-## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
+## What do you do when your bunny gets wet? You get your hare dryer.
