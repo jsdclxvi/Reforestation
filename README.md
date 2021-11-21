@@ -1,1 +1,1 @@
-## What did the ocean say to the beach? Thanks for all the sediment.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
