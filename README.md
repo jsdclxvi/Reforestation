@@ -1,1 +1,1 @@
-## Toasters were the first form of pop-up notifications.
+## Shout out to my grandma, that's the only way she can hear.
