@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
