@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## What do you call a bear with no teeth? A gummy bear!
