@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## People are making apocalypse jokes like there’s no tomorrow.
