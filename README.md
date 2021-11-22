@@ -1,1 +1,3 @@
-## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
+## How many seconds are in a year?
+## 12.
+## January 2nd, February 2nd, March 2nd, April 2nd.... etc
