@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
