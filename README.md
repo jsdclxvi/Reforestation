@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## I wouldn't buy anything with velcro. It's a total rip-off.
