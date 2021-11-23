@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
