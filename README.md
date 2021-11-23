@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
