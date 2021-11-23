@@ -1,1 +1,2 @@
-## What did one snowman say to the other snow man? Do you smell carrot?
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
