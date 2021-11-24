@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
