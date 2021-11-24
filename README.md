@@ -1,1 +1,1 @@
-## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
