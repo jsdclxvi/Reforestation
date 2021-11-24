@@ -1,1 +1,1 @@
-## What do you call a fake noodle? An impasta.
+## What kind of pants do ghosts wear? Boo jeans.
