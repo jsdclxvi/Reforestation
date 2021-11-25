@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## Why did the melons plan a big wedding? Because they cantaloupe!
