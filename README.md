@@ -1,1 +1,1 @@
-## Dad, can you put my shoes on? I don't think they'll fit me.
+## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
