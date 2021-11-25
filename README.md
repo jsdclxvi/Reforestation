@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
