@@ -1,1 +1,1 @@
-## What do you call a fly without wings? A walk.
+## Why do bees have sticky hair? Because they use honey combs!
