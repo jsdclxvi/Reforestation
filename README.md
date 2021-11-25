@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## Where do young cows eat lunch? In the calf-ateria.
