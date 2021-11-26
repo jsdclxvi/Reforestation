@@ -1,1 +1,1 @@
-## I have kleptomania, but when it gets bad, I take something for it.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
