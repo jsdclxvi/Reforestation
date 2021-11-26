@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## Why didn’t the skeleton cross the road? Because he had no guts.
