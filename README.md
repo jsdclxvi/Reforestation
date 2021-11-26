@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## What do you call a nervous javelin thrower? Shakespeare.
