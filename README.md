@@ -1,1 +1,1 @@
-## How do you organize a space party? You planet.
+## When is a door not a door? When it's ajar.
