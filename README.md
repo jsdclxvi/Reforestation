@@ -1,1 +1,1 @@
-## There’s a new type of broom out, it’s sweeping the nation.
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
