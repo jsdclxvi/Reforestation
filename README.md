@@ -1,1 +1,1 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
