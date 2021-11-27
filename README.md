@@ -1,1 +1,1 @@
-## I have kleptomania, but when it gets bad, I take something for it.
+## I asked a frenchman if he played video games. He said "Wii"
