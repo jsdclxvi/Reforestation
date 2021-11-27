@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## I have kleptomania, but when it gets bad, I take something for it.
