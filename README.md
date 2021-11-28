@@ -1,1 +1,1 @@
-## I tried to write a chemistry joke, but could never get a reaction.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
