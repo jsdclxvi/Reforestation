@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
