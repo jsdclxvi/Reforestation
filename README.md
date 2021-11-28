@@ -1,1 +1,1 @@
-## Why did the worker get fired from the orange juice factory? Lack of concentration.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
