@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## What did one nut say as he chased another nut?  I'm a cashew!
