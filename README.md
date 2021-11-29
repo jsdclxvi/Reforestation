@@ -1,1 +1,3 @@
-## A termite walks into a bar and asks “Is the bar tender here?”
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
