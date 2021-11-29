@@ -1,1 +1,1 @@
-## What do you call a crowd of chess players bragging about their wins in a hotel lobby? Chess nuts boasting in an open foyer.
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
