@@ -1,1 +1,1 @@
-## ‘Put the cat out’ … ‘I didn’t realize it was on fire
+## Why do you never see elephants hiding in trees? Because they're so good at it.
