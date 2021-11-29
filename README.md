@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## Why did the feline fail the lie detector test? Because he be lion.
