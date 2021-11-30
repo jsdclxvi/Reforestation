@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## Don't tell secrets in corn fields. Too many ears around.
