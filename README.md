@@ -1,1 +1,1 @@
-## What did Michael Jackson name his denim store?    Billy Jeans!
+## Why are graveyards so noisy? Because of all the coffin.
