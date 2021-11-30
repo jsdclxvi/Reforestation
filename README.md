@@ -1,1 +1,1 @@
-## Why was it called the dark ages? Because of all the knights. 
+## Some people eat light bulbs. They say it's a nice light snack.
