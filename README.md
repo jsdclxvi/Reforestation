@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## I decided to sell my Hoover… well it was just collecting dust.
