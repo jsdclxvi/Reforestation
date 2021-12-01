@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
