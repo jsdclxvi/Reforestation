@@ -1,1 +1,2 @@
-## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
+## What is red and smells like blue paint?
+## Red paint!
