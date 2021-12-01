@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## What musical instrument is found in the bathroom? A tuba toothpaste.
