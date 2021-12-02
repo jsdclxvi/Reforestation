@@ -1,1 +1,1 @@
-## The rotation of earth really makes my day.
+## A magician was driving down the street and then he turned into a driveway.
