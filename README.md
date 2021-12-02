@@ -1,2 +1,1 @@
-## What's the difference between a seal and a sea lion?
-## An ion! 
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
