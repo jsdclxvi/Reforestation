@@ -1,1 +1,2 @@
-## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
+## What do you do when you see a space man?
+## Park your car, man.
