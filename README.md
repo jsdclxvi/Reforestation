@@ -1,1 +1,1 @@
-## I had a dream that I was a muffler last night. I woke up exhausted!
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
