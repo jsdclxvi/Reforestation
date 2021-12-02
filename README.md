@@ -1,1 +1,2 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## What is the best way to carve?
+## Whittle by whittle.
