@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## A magician was driving down the street and then he turned into a driveway.
