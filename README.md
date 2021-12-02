@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## A book just fell on my head. I only have my shelf to blame.
