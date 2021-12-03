@@ -1,1 +1,1 @@
-## I'm tired of following my dreams. I'm just going to ask them where they are going and meet up with them later.
+## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
