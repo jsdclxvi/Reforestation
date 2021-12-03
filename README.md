@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## What lies at the bottom of the ocean and twitches? A nervous wreck.
