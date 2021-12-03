@@ -1,1 +1,1 @@
-## What happens when you anger a brain surgeon? They will give you a piece of your mind.
+## How can you tell a vampire has a cold? They start coffin.
