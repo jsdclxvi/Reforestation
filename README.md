@@ -1,1 +1,1 @@
-## At the boxing match, the dad got into the popcorn line and the line for hot dogs, but he wanted to stay out of the punchline.
+## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
