@@ -1,1 +1,1 @@
-## What’s brown and sounds like a bell? Dung!
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
