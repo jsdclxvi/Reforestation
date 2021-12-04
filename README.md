@@ -1,1 +1,1 @@
-## What do bees do after they are married? They go on a honeymoon.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
