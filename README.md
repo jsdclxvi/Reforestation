@@ -1,1 +1,1 @@
-## What kind of music do mummy's like? Rap
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
