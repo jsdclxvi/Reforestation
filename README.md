@@ -1,1 +1,1 @@
-## Past, present, and future walked into a bar.... It was tense.
+## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
