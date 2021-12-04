@@ -1,1 +1,1 @@
-## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
