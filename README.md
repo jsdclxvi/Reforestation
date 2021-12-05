@@ -1,1 +1,1 @@
-## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
+## What's the best thing about elevator jokes? They work on so many levels.
