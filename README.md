@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
