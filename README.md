@@ -1,1 +1,1 @@
-## The first time I got a universal remote control I thought to myself, "This changes everything"
+## What creature is smarter than a talking parrot? A spelling bee.
