@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## I ordered a chicken and an egg from Amazon. I'll let you know.
