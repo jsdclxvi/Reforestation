@@ -1,1 +1,1 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## People are making apocalypse jokes like there’s no tomorrow.
