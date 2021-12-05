@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## What's brown and sticky? A stick.
