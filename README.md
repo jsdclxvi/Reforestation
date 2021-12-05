@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
