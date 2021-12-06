@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## I went to the doctor today and he told me I had type A blood but it was a type O.
