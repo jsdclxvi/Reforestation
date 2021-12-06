@@ -1,2 +1,1 @@
-## What is the least spoken language in the world?
-## Sign Language
+## People are making apocalypse jokes like there’s no tomorrow.
