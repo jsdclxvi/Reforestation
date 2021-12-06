@@ -1,1 +1,1 @@
-## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
