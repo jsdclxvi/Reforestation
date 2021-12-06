@@ -1,1 +1,1 @@
-## What do you call a fly without wings? A walk.
+## What do you call a cow with two legs? Lean beef.
