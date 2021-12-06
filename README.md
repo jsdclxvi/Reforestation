@@ -1,1 +1,1 @@
-## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
