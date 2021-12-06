@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
