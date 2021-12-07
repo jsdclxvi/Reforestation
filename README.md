@@ -1,1 +1,2 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
