@@ -1,1 +1,1 @@
-## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
