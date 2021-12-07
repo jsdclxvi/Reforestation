@@ -1,1 +1,1 @@
-## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
