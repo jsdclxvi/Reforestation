@@ -1,1 +1,1 @@
-## Whenever the cashier at the grocery store asks my dad if he would like the milk in a bag he replies, ‘No, just leave it in the carton!’
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
