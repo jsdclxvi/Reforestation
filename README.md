@@ -1,2 +1,1 @@
-## Hostess: Do you have a preference of where you sit?
-## Dad: Down.
+## Why did the melons plan a big wedding? Because they cantaloupe!
