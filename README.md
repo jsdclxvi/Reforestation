@@ -1,1 +1,1 @@
-## The rotation of earth really makes my day.
+## Want to hear a joke about construction? Nah, I'm still working on it.
