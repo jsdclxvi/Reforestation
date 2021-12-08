@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## Why do choirs keep buckets handy? So they can carry their tune
