@@ -1,1 +1,3 @@
-## Why do choirs keep buckets handy? So they can carry their tune
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
