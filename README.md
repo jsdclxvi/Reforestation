@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## What did one plate say to the other plate? Dinner is on me!
