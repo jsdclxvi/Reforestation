@@ -1,2 +1,1 @@
-## What's the difference between a seal and a sea lion?
-## An ion! 
+## I met this girl on a dating site and, I don't know, we just clicked.
