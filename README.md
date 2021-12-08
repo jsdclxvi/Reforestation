@@ -1,1 +1,1 @@
-## Why is Peter Pan always flying? Because he Neverlands.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
