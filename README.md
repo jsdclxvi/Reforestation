@@ -1,2 +1,1 @@
-## What did the hat say to the scarf?
-## You can hang around. I'll just go on ahead.
+## I had a dream that I was a muffler last night. I woke up exhausted!
