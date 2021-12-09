@@ -1,1 +1,2 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
