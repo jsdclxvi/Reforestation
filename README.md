@@ -1,1 +1,1 @@
-## What do you call a crowd of chess players bragging about their wins in a hotel lobby? Chess nuts boasting in an open foyer.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
