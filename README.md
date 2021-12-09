@@ -1,1 +1,1 @@
-## Toasters were the first form of pop-up notifications.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
