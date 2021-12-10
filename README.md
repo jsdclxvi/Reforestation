@@ -1,1 +1,1 @@
-## Conjunctivitis.com – now that’s a site for sore eyes.
+## What do vegetarian zombies eat? Grrrrrainnnnnssss.
