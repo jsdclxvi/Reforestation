@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
