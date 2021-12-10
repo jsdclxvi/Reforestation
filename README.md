@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## Where do rabbits go after they get married? On a bunny-moon.
