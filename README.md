@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
