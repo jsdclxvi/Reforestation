@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## Why did the barber win the race? He took a short cut.
