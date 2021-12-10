@@ -1,2 +1,1 @@
-## Q: What did the spaghetti say to the other spaghetti?
-## A: Pasta la vista, baby!
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
