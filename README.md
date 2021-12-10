@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## I burned 2000 calories today, I left my food in the oven for too long.
