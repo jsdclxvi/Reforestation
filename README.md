@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
