@@ -1,1 +1,1 @@
-## I burned 2000 calories today, I left my food in the oven for too long.
+## How come the stadium got hot after the game? Because all of the fans left.
