@@ -1,1 +1,1 @@
-## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
