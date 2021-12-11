@@ -1,1 +1,2 @@
-## What did one plate say to the other plate? Dinner is on me!
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
