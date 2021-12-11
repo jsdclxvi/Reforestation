@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
