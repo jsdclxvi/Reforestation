@@ -1,1 +1,1 @@
-## My sea sickness comes in waves.
+## What does a pirate pay for his corn? A buccaneer!
