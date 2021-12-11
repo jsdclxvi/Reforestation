@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## What did one plate say to the other plate? Dinner is on me!
