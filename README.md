@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
