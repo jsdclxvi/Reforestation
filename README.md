@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
