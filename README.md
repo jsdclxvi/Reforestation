@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
