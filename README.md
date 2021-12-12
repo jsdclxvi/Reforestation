@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## What did Romans use to cut pizza before the rolling cutter was invented? Lil Caesars
