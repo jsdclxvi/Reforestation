@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
