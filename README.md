@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## What did the ocean say to the shore? Nothing, it just waved.
