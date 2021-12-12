@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
