@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## Why did the barber win the race? He took a short cut.
