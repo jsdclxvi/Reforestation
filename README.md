@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
