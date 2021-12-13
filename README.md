@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## Why was the picture sent to prison? It was framed.
