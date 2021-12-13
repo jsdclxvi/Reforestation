@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
