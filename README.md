@@ -1,1 +1,1 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
