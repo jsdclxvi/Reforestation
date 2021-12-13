@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## How does the moon cut his hair? Eclipse it.
