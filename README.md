@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## Ever wondered why bees hum? It's because they don't know the words.
