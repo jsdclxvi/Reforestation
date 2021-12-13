@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
