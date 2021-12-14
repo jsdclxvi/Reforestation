@@ -1,1 +1,1 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## An apple a day keeps the bullies away. If you throw it hard enough.
