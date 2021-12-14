@@ -1,1 +1,1 @@
-## Toasters were the first form of pop-up notifications.
+## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
