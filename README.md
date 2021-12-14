@@ -1,1 +1,1 @@
-## Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
