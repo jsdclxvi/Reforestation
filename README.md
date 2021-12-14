@@ -1,1 +1,1 @@
-## I'd like to start a diet, but I've got too much on my plate right now.
+## Dad, can you put my shoes on? I don't think they'll fit me.
