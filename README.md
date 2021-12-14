@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
