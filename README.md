@@ -1,1 +1,1 @@
-## Why do mathematicians hate the U.S.? Because it's indivisible.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
