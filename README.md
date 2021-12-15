@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## What did Romans use to cut pizza before the rolling cutter was invented? Lil Caesars
