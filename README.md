@@ -1,1 +1,2 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
