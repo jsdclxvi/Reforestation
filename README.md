@@ -1,1 +1,1 @@
-## Why did the man run around his bed? Because he was trying to catch up on his sleep!
+## I ordered a chicken and an egg from Amazon. I'll let you know.
