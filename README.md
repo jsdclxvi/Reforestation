@@ -1,1 +1,1 @@
-## Me and my mates are in a band called Duvet. We're a cover band.
+## Where did Captain Hook get his hook? From a second hand store.
