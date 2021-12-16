@@ -1,1 +1,1 @@
-## Two silk worms had a race. They ended up in a tie.
+## How does Darth Vader like his toast? On the dark side.
