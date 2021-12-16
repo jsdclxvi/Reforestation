@@ -1,1 +1,1 @@
-## How does Darth Vader like his toast? On the dark side.
+## Why can't eggs have love? They will break up too soon.
