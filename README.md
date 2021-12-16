@@ -1,1 +1,1 @@
-## Where does Napoleon keep his armies? In his sleevies.
+## How much does a hipster weigh? An instagram.
