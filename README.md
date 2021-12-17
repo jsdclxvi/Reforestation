@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## I'd like to start a diet, but I've got too much on my plate right now.
