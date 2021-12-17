@@ -1,1 +1,1 @@
-## What did the grape do when he got stepped on? He let out a little wine.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
