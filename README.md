@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## What did the left eye say to the right eye? Between us, something smells!
