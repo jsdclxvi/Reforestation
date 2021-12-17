@@ -1,1 +1,1 @@
-## A termite walks into a bar and asks “Is the bar tender here?”
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
