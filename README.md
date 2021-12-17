@@ -1,1 +1,1 @@
-## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
+## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
