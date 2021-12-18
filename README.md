@@ -1,1 +1,1 @@
-## My wife is on a tropical fruit diet, the house is full of stuff. It is enough to make a mango crazy.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
