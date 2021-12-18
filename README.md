@@ -1,1 +1,1 @@
-## I couldn't figure out how the seat belt worked. Then it just clicked.
+## Want to hear a joke about construction? Nah, I'm still working on it.
