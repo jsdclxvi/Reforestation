@@ -1,1 +1,1 @@
-## Why do bees have sticky hair? Because they use honey combs!
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
