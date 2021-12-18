@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
