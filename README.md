@@ -1,1 +1,1 @@
-## what do you call a dog that can do magic tricks? a labracadabrador
+## I couldn't get a reservation at the library. They were completely booked.
