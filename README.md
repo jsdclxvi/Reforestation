@@ -1,1 +1,1 @@
-## Feeling pretty proud of myself. The Sesame Street puzzle I bought said 3-5 years, but I finished it in 18 months.
+## Some people say that comedians who tell one too many light bulb jokes soon burn out, but they don't know watt they are talking about. They're not that bright.
