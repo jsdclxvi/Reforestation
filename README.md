@@ -1,1 +1,1 @@
-## What do bees do after they are married? They go on a honeymoon.
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
