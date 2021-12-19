@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
