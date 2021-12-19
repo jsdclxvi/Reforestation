@@ -1,1 +1,1 @@
-## What do birds give out on Halloween? Tweets.
+## Where did Captain Hook get his hook? From a second hand store.
