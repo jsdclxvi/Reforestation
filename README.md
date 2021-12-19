@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## I broke my finger at work today, on the other hand I'm completely fine.
