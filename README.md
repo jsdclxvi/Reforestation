@@ -1,1 +1,1 @@
-## Who did the wizard marry? His ghoul-friend
+## Did you hear about the kidnapping at school? It's ok, he woke up.
