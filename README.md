@@ -1,1 +1,1 @@
-## Chances are if you' ve seen one shopping center, you've seen a mall.
+## Why do choirs keep buckets handy? So they can carry their tune
