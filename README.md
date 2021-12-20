@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
