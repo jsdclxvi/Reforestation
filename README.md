@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## I used to work for a soft drink can crusher. It was soda pressing.
