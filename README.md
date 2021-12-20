@@ -1,1 +1,1 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## Why did the kid cross the playground? To get to the other slide.
