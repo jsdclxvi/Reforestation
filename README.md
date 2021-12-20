@@ -1,1 +1,1 @@
-## I hate perforated lines, they're tearable.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
