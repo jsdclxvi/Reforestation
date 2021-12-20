@@ -1,1 +1,1 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## How do you get two whales in a car? Start in England and drive West.
