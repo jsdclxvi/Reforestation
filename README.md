@@ -1,1 +1,1 @@
-## Did you hear the one about the giant pickle?  He was kind of a big dill.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
