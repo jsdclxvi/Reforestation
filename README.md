@@ -1,1 +1,1 @@
-## A magician was driving down the street and then he turned into a driveway.
+## What does an angry pepper do? It gets jalapeño face.
