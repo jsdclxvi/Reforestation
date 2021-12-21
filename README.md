@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
