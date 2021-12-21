@@ -1,1 +1,1 @@
-## What’s Forest Gump’s Facebook password? 1forest1
+## This morning I was wondering where the sun was, but then it dawned on me.
