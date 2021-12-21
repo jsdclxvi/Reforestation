@@ -1,1 +1,1 @@
-## This morning I was wondering where the sun was, but then it dawned on me.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
