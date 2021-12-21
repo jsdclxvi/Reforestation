@@ -1,1 +1,1 @@
-## What do you call an Argentinian with a rubber toe? Roberto
+## Who is the coolest Doctor in the hospital? The hip Doctor!
