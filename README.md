@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## Why was the broom late for the meeting? He overswept.
