@@ -1,1 +1,1 @@
-## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
+## Want to hear a joke about construction? Nah, I'm still working on it.
