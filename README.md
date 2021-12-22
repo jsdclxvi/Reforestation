@@ -1,1 +1,1 @@
-## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
+## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
