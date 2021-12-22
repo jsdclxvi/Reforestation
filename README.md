@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## Ever wondered why bees hum? It's because they don't know the words.
