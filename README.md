@@ -1,1 +1,1 @@
-## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
+## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
