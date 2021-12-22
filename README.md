@@ -1,1 +1,1 @@
-## What do you call an Argentinian with a rubber toe? Roberto
+## What do you call a droid that takes the long way around? R2 detour.
