@@ -1,1 +1,1 @@
-## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
+## Dad, can you put my shoes on? I don't think they'll fit me.
