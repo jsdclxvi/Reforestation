@@ -1,1 +1,1 @@
-## Did you hear the news? FedEx and UPS are merging. They’re going to go by the name Fed-Up from now on.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
