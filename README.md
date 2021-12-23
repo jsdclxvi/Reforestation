@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
