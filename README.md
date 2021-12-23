@@ -1,1 +1,1 @@
-## What's the worst thing about ancient history class? The teachers tend to Babylon.
+## Why was ten scared of seven? Because seven ate nine.
