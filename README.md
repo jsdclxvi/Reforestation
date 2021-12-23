@@ -1,1 +1,1 @@
-## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
