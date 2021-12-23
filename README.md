@@ -1,1 +1,1 @@
-## Why can't your nose be 12 inches long? Because then it'd be a foot!
+## Don't tell secrets in corn fields. Too many ears around.
