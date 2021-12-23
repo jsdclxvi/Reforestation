@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
