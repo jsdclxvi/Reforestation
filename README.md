@@ -1,1 +1,2 @@
-## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
