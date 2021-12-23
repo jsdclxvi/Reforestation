@@ -1,1 +1,1 @@
-## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
+## Did you know that ghosts call their true love their ghoul-friend?
