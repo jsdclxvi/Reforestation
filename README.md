@@ -1,1 +1,1 @@
-## Never take advice from electrons. They are always negative.
+## What did one plate say to the other plate? Dinner is on me!
