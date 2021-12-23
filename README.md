@@ -1,1 +1,1 @@
-## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
