@@ -1,1 +1,1 @@
-## It doesn't matter how much you push the envelope. It will still be stationary.
+## I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
