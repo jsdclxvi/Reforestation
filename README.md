@@ -1,1 +1,1 @@
-## Where does batman go to the bathroom? The batroom.
+## What do you call a dictionary on drugs? High definition.
