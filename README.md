@@ -1,1 +1,1 @@
-## What biscuit does a short person like? Shortbread. 
+## Why is the ocean always blue? Because the shore never waves back.
