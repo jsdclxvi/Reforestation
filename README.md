@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## When is a door not a door? When it's ajar.
