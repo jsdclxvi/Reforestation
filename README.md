@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## Why do crabs never give to charity? Because they’re shellfish.
