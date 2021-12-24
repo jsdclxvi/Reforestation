@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## An apple a day keeps the bullies away. If you throw it hard enough.
