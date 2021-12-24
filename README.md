@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## What do you call a pig that knows karate? A pork chop!
