@@ -1,1 +1,1 @@
-## How do you make Lady Gaga cry? Poker face. 
+## “My Dog has no nose.” “How does he smell?” “Awful”
