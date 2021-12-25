@@ -1,1 +1,1 @@
-## Two silk worms had a race. They ended up in a tie.
+## What do you call corn that joins the army? Kernel.
