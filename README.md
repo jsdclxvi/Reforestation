@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## There's not really any training for garbagemen. They just pick things up as they go.
