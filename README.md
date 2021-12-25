@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
