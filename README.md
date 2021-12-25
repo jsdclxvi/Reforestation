@@ -1,1 +1,1 @@
-## I am terrified of elevators. I’m going to start taking steps to avoid them.
+## Why was the big cat disqualified from the race? Because it was a cheetah.
