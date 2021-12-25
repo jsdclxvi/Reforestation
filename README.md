@@ -1,1 +1,1 @@
-## “My Dog has no nose.” “How does he smell?” “Awful”
+## I decided to sell my Hoover… well it was just collecting dust.
