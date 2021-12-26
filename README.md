@@ -1,1 +1,1 @@
-## A man tried to sell me a coffin today. I told him that's the last thing I need.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
