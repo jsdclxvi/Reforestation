@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## You can't trust a ladder. It will always let you down
