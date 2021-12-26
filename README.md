@@ -1,1 +1,1 @@
-## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
