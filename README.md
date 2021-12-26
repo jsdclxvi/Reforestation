@@ -1,1 +1,1 @@
-## Why didn’t the orange win the race? It ran out of juice.
+## What did one plate say to the other plate? Dinner is on me!
