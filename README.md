@@ -1,1 +1,1 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## How come the stadium got hot after the game? Because all of the fans left.
