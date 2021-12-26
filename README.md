@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
