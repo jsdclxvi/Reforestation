@@ -1,1 +1,1 @@
-## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
