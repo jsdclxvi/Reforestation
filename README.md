@@ -1,1 +1,1 @@
-## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
