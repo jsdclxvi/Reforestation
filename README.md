@@ -1,3 +1,1 @@
-## How many seconds are in a year?
-## 12.
-## January 2nd, February 2nd, March 2nd, April 2nd.... etc
+## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
