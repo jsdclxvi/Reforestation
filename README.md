@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## What did the digital clock say to the grandfather clock? Look, no hands!
