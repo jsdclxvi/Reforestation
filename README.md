@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## How much does a hipster weigh? An instagram.
