@@ -1,1 +1,1 @@
-## My son is studying to be a surgeon, I just hope he makes the cut.
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
