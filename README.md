@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
