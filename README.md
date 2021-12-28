@@ -1,1 +1,2 @@
-## A book just fell on my head. I only have my shelf to blame.
+##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
+## 
