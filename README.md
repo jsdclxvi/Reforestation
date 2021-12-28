@@ -1,1 +1,1 @@
-## I tried to write a chemistry joke, but could never get a reaction.
+## Why didn’t the orange win the race? It ran out of juice.
