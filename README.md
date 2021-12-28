@@ -1,1 +1,1 @@
-## Why didn’t the orange win the race? It ran out of juice.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
