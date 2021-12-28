@@ -1,1 +1,1 @@
-## Someone broke into my house last night and stole my limbo trophy. How low can you go?
+## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
