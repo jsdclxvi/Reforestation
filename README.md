@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## Why do birds fly south for the winter? Because it's too far to walk.
