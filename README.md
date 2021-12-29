@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## People are making apocalypse jokes like there’s no tomorrow.
