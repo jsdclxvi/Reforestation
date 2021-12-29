@@ -1,1 +1,1 @@
-## Why are ghosts bad liars? Because you can see right through them!
+## Why was the robot angry? Because someone kept pressing his buttons!
