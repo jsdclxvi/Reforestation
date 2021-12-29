@@ -1,1 +1,1 @@
-## People are making apocalypse jokes like there’s no tomorrow.
+## Why are ghosts bad liars? Because you can see right through them!
