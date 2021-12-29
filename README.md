@@ -1,1 +1,1 @@
-## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
+## What do computers and air conditioners have in common? They both become useless when you open windows.
