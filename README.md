@@ -1,1 +1,2 @@
-## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
+## What's the difference between a seal and a sea lion?
+## An ion! 
