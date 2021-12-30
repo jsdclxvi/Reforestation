@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## Doctor you've got to help me, I'm addicted to Twitter. Doctor: I don't follow you.
