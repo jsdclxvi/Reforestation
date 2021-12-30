@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
