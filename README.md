@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## What did one nut say as he chased another nut?  I'm a cashew!
