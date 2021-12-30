@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
