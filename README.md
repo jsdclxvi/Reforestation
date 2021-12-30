@@ -1,2 +1,2 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## What do you do when you see a space man?
+## Park your car, man.
