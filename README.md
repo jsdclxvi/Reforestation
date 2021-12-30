@@ -1,1 +1,1 @@
-## What did one nut say as he chased another nut?  I'm a cashew!
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
