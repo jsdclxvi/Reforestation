@@ -1,1 +1,1 @@
-## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
+## Shout out to my grandma, that's the only way she can hear.
