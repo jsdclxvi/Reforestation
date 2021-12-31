@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## Why did the barber win the race? He took a short cut.
