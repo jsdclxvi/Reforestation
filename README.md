@@ -1,1 +1,1 @@
-## I was thinking about moving to Moscow but there is no point Russian into things.
+## I heard there was a new store called Moderation. They have everything there
