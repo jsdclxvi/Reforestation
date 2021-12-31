@@ -1,1 +1,1 @@
-## My dentist is the best, he even has a little plaque!
+## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
