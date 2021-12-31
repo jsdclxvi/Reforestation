@@ -1,1 +1,1 @@
-## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
+## I was thinking about moving to Moscow but there is no point Russian into things.
