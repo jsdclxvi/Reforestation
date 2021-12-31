@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
