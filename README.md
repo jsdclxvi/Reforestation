@@ -1,1 +1,1 @@
-## I used to be addicted to the hokey pokey, but I turned myself around.
+## If at first you don't succeed, sky diving is not for you!
