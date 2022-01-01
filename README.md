@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
