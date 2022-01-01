@@ -1,1 +1,1 @@
-## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
