@@ -1,1 +1,1 @@
-## Who did the wizard marry? His ghoul-friend
+## My boss told me to have a good day... so I went home.
