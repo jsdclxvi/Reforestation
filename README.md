@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
