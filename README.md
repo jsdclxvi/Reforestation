@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## Breaking news! Energizer Bunny arrested – charged with battery.
