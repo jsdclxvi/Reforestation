@@ -1,2 +1,1 @@
-## What did the hat say to the scarf?
-## You can hang around. I'll just go on ahead.
+## What do you call an Argentinian with a rubber toe? Roberto
