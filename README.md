@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
