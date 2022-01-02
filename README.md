@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## What is a tornado's favorite game to play? Twister!
