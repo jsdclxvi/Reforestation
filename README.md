@@ -1,1 +1,1 @@
-## What do you call a fly without wings? A walk.
+## Why do birds fly south for the winter? Because it's too far to walk.
