@@ -1,1 +1,1 @@
-## Why do choirs keep buckets handy? So they can carry their tune
+## What has ears but cannot hear? A field of corn.
