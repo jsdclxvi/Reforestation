@@ -1,1 +1,1 @@
-## What’s brown and sounds like a bell? Dung!
+## I used to be a banker, but I lost interest.
