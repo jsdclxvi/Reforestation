@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
