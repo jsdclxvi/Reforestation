@@ -1,1 +1,1 @@
-## I used to work in a shoe recycling shop. It was sole destroying.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
