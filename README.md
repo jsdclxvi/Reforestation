@@ -1,1 +1,1 @@
-## I used to be addicted to soap, but I'm clean now.
+## Have you heard about corduroy pillows?  They're making headlines!
