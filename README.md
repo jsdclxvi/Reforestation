@@ -1,1 +1,1 @@
-## What kind of tree fits in your hand? A palm tree!
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
