@@ -1,1 +1,1 @@
-## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
