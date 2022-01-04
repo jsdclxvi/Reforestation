@@ -1,1 +1,1 @@
-## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
+## I was thinking about moving to Moscow but there is no point Russian into things.
