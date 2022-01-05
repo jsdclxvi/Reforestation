@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
