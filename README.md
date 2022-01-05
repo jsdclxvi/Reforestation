@@ -1,1 +1,1 @@
-## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
