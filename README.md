@@ -1,1 +1,1 @@
-## How do you make Lady Gaga cry? Poker face. 
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
