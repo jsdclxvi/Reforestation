@@ -1,1 +1,1 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
