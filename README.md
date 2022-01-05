@@ -1,1 +1,1 @@
-## What did Romans use to cut pizza before the rolling cutter was invented? Lil Caesars
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
