@@ -1,1 +1,1 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
