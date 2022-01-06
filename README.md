@@ -1,1 +1,1 @@
-## Did you hear about the Mexican train killer? He had loco motives
+## The first time I got a universal remote control I thought to myself, "This changes everything"
