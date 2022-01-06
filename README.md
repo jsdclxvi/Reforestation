@@ -1,1 +1,1 @@
-## I heard there was a new store called Moderation. They have everything there
+## What did the fish say when it swam into a wall? Damn!
