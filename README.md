@@ -1,1 +1,1 @@
-## Why do pirates not know the alphabet? They always get stuck at "C".
+## Did you hear about the Mexican train killer? He had loco motives
