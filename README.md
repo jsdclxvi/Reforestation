@@ -1,1 +1,1 @@
-## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
+## There's not really any training for garbagemen. They just pick things up as they go.
