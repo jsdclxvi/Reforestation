@@ -1,2 +1,1 @@
-## What's the difference between a seal and a sea lion?
-## An ion! 
+## An apple a day keeps the bullies away. If you throw it hard enough.
