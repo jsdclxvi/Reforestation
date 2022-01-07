@@ -1,1 +1,2 @@
-## How do locomotives know where they're going? Lots of training
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
