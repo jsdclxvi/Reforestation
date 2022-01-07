@@ -1,1 +1,1 @@
-## How does a penguin build it’s house? Igloos it together.
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
