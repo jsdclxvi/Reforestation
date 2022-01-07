@@ -1,2 +1,1 @@
-## Q: What did the spaghetti say to the other spaghetti?
-## A: Pasta la vista, baby!
+## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
