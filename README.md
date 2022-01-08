@@ -1,1 +1,1 @@
-## I couldn't get a reservation at the library. They were completely booked.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
