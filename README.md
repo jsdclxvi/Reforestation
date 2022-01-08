@@ -1,1 +1,1 @@
-## Why was the big cat disqualified from the race? Because it was a cheetah.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
