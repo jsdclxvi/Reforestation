@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## What do you call an eagle who can play the piano? Talonted!
