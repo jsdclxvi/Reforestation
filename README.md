@@ -1,1 +1,1 @@
-## What’s brown and sounds like a bell? Dung!
+## I couldn't get a reservation at the library. They were completely booked.
