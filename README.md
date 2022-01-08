@@ -1,1 +1,1 @@
-## Geology rocks, but Geography is where it's at!
+## What do you call a cow with no legs? Ground beef.
