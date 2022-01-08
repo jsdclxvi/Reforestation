@@ -1,1 +1,1 @@
-## What do you call someone with no nose? Nobody knows.
+## Why did the barber win the race? He took a short cut.
