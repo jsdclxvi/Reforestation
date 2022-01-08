@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## Breaking news! Energizer Bunny arrested – charged with battery.
