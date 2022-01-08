@@ -1,1 +1,1 @@
-## Geology rocks, but Geography is where it's at!
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
