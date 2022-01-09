@@ -1,1 +1,2 @@
-## I used to be addicted to the hokey pokey, but I turned myself around.
+##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
+## 
