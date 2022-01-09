@@ -1,2 +1,1 @@
-##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
-## 
+## I was so proud when I finished the puzzle in six months, when on the side it said three to four years.
