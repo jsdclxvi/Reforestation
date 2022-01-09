@@ -1,1 +1,1 @@
-## How many South Americans does it take to change a lightbulb? A Brazilian
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
