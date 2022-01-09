@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
