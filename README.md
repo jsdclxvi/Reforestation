@@ -1,1 +1,1 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
