@@ -1,1 +1,1 @@
-## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
+## Two guys walked into a bar, the third one ducked.
