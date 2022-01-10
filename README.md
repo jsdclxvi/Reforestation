@@ -1,1 +1,1 @@
-## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
