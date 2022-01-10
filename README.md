@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## A termite walks into a bar and asks “Is the bar tender here?”
