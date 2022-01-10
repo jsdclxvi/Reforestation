@@ -1,1 +1,1 @@
-## Why are mummys scared of vacation? They're afraid to unwind.
+## What kind of award did the dentist receive? A little plaque.
