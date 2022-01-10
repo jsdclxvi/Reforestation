@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
