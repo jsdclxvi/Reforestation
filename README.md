@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## Why did the house go to the doctor? It was having window panes.
