@@ -1,7 +1,1 @@
-## Wife: Honey I’m pregnant.
-## 
-## Me: Well…. what do we do now?
-## 
-## Wife: Well, I guess we should go to a baby doctor.
-## 
-## Me: Hm.. I think I’d be a lot more comfortable going to an adult doctor.
+## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
