@@ -1,1 +1,1 @@
-## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
+## I thought about going on an all-almond diet. But that's just nuts.
