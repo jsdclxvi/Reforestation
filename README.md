@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## What do you call a duck that gets all A's? A wise quacker.
