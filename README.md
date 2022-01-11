@@ -1,1 +1,1 @@
-## As I suspected, someone has been adding soil to my garden. The plot thickens.
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
