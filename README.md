@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
