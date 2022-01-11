@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
