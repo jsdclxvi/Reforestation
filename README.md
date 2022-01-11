@@ -1,1 +1,1 @@
-## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+## What do you call a boy who stopped digging holes? Douglas.
