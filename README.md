@@ -1,1 +1,1 @@
-## What's the worst thing about ancient history class? The teachers tend to Babylon.
+## I was in an 80's band called the prevention. We were better than the cure.
