@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
