@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
