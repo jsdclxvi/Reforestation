@@ -1,1 +1,1 @@
-## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
+## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
