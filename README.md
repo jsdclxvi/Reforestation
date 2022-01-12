@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
