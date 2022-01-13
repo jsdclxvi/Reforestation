@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
