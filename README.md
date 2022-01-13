@@ -1,1 +1,1 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## What did the digital clock say to the grandfather clock? Look, no hands!
