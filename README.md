@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## Is the pool safe for diving? It deep ends.
