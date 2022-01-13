@@ -1,1 +1,1 @@
-## You can't run through a camp site. You can only ran, because it's past tents.
+## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
