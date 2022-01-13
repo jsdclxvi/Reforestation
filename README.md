@@ -1,1 +1,1 @@
-## Is the pool safe for diving? It deep ends.
+## The other day, my wife asked me to pass her lipstick but I accidentally passed her a glue stick. She still isn't talking to me.
