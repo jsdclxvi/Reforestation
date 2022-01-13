@@ -1,1 +1,1 @@
-## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
+## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
