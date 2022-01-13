@@ -1,1 +1,1 @@
-## Why are fish easy to weigh? Because they have their own scales.
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
