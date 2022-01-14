@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## Why did the half blind man fall in the well? Because he couldn't see that well!
