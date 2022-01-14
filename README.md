@@ -1,1 +1,1 @@
-## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
+## Why are fish easy to weigh? Because they have their own scales.
