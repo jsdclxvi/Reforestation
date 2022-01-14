@@ -1,1 +1,1 @@
-## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
+## Did you know crocodiles could grow up to 15 feet? But most just have 4.
