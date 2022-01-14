@@ -1,1 +1,1 @@
-## Which side of the chicken has more feathers? The outside.
+## Why are fish so smart? Because they live in schools!
