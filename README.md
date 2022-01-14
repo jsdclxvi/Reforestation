@@ -1,1 +1,1 @@
-## Why are fish so smart? Because they live in schools!
+## People are making apocalypse jokes like there’s no tomorrow.
