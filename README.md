@@ -1,1 +1,1 @@
-## It's difficult to say what my wife does, she sells sea shells by the sea shore.
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
