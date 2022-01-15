@@ -1,1 +1,1 @@
-## How do you get a baby alien to sleep?  You rocket.
+## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
