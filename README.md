@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## Writing with a broken pencil is pointless.
