@@ -1,1 +1,1 @@
-## What did the ocean say to the beach? Thanks for all the sediment.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
