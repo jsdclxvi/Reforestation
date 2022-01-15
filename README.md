@@ -1,1 +1,1 @@
-## What's the worst thing about ancient history class? The teachers tend to Babylon.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
