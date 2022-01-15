@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## How can you tell a vampire has a cold? They start coffin.
