@@ -1,1 +1,7 @@
-## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
+## Wife: Honey I’m pregnant.
+## 
+## Me: Well…. what do we do now?
+## 
+## Wife: Well, I guess we should go to a baby doctor.
+## 
+## Me: Hm.. I think I’d be a lot more comfortable going to an adult doctor.
