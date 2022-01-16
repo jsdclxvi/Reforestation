@@ -1,1 +1,1 @@
-## What did the ocean say to the beach? Thanks for all the sediment.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
