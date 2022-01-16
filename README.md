@@ -1,1 +1,1 @@
-## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
