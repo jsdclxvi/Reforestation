@@ -1,1 +1,1 @@
-## I have kleptomania, but when it gets bad, I take something for it.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
