@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## What do you get when you cross a snowman with a vampire? Frostbite.
