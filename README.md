@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## What do computers and air conditioners have in common? They both become useless when you open windows.
