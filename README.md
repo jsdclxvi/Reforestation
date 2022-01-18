@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## Someone broke into my house last night and stole my limbo trophy. How low can you go?
