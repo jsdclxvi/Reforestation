@@ -1,1 +1,1 @@
-## Where do sheep go to get their hair cut? The baa-baa shop.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
