@@ -1,1 +1,1 @@
-## Where did you learn to make ice cream? Sunday school.
+## Why do ducks make great detectives? They always quack the case.
