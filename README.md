@@ -1,1 +1,1 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
