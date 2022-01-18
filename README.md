@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## I heard there was a new store called Moderation. They have everything there
