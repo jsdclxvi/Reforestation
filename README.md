@@ -1,1 +1,1 @@
-## I used to be addicted to the hokey pokey, but I turned myself around.
+## Where do sheep go to get their hair cut? The baa-baa shop.
