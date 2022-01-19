@@ -1,1 +1,1 @@
-## Did you know crocodiles could grow up to 15 feet? But most just have 4.
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
