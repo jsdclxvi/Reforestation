@@ -1,1 +1,1 @@
-## I heard there was a new store called Moderation. They have everything there
+## What did one nut say as he chased another nut?  I'm a cashew!
