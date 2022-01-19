@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
