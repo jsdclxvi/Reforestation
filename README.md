@@ -1,1 +1,1 @@
-## You can't run through a camp site. You can only ran, because it's past tents.
+## Where do sheep go to get their hair cut? The baa-baa shop.
