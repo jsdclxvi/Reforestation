@@ -1,1 +1,1 @@
-## Past, present, and future walked into a bar.... It was tense.
+## Don't tell secrets in corn fields. Too many ears around.
