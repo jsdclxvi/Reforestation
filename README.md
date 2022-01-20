@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted.
+## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
