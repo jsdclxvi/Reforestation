@@ -1,1 +1,1 @@
-## What did the grape do when he got stepped on? He let out a little wine.
+## I ordered a chicken and an egg from Amazon. I'll let you know.
