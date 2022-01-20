@@ -1,1 +1,1 @@
-## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
