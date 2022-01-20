@@ -1,1 +1,1 @@
-## What did the piece of bread say to the knife? Butter me up.
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
