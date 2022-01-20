@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## Which side of the chicken has more feathers? The outside.
