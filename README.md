@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
