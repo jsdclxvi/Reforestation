@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## Why is the ocean always blue? Because the shore never waves back.
