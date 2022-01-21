@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## Remember, the best angle to approach a problem from is the "try" angle.
