@@ -1,1 +1,1 @@
-## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
