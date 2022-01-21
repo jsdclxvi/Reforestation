@@ -1,1 +1,3 @@
-## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
