@@ -1,1 +1,1 @@
-## This morning I was wondering where the sun was, but then it dawned on me.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
