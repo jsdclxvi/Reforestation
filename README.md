@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## I used to hate facial hair, but then it grew on me.
