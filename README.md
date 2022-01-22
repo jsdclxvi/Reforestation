@@ -1,3 +1,1 @@
-## What was the pumpkin’s favorite sport?
-## 
-## Squash.
+## Why did the belt go to prison? He held up a pair of pants!
