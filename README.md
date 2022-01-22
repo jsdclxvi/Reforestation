@@ -1,1 +1,1 @@
-## I got an A on my origami assignment when I turned my paper into my teacher
+## Coffee has a tough time at my house, every morning it gets mugged.
