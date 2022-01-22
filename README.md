@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
