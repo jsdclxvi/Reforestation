@@ -1,1 +1,1 @@
-## Do I enjoy making courthouse puns? Guilty
+## This morning I was wondering where the sun was, but then it dawned on me.
