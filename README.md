@@ -1,1 +1,1 @@
-## I couldn't figure out how the seat belt worked. Then it just clicked.
+## An apple a day keeps the bullies away. If you throw it hard enough.
