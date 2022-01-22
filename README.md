@@ -1,1 +1,1 @@
-## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
