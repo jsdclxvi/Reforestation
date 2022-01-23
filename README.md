@@ -1,1 +1,1 @@
-## It's difficult to say what my wife does, she sells sea shells by the sea shore.
+## Did you hear about the two thieves who stole a calendar? They each got six months.
