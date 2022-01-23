@@ -1,1 +1,2 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## Why did Mozart kill all his chickens?
+## Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
