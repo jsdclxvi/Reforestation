@@ -1,1 +1,1 @@
-## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
+## Every night at 11:11, I make a wish that someone will come fix my broken clock.
