@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## Why is the ocean always blue? Because the shore never waves back.
