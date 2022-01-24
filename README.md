@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## How does a dyslexic poet write? Inverse.
