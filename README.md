@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## Did you hear about the kidnapping at school? It's ok, he woke up.
