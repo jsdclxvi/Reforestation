@@ -1,1 +1,2 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
