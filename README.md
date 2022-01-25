@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## Where did you learn to make ice cream? Sunday school.
