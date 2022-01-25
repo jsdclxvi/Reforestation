@@ -1,1 +1,1 @@
-## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
