@@ -1,1 +1,1 @@
-## Where did you learn to make ice cream? Sunday school.
+## I’ll tell you something about German sausages, they’re the wurst
