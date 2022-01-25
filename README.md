@@ -1,1 +1,1 @@
-## Past, present, and future walked into a bar.... It was tense.
+## What do you do when your bunny gets wet? You get your hare dryer.
