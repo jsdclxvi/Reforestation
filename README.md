@@ -1,1 +1,1 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
