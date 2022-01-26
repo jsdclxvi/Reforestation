@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
