@@ -1,1 +1,1 @@
-## People who don't eat gluten are really going against the grain.
+## Ever wondered why bees hum? It's because they don't know the words.
