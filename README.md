@@ -1,1 +1,1 @@
-## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
+## Doctor you've got to help me, I'm addicted to Twitter. Doctor: I don't follow you.
