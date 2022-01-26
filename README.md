@@ -1,1 +1,1 @@
-## I don't trust stairs. They're always up to something.
+## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
