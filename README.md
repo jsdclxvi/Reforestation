@@ -1,1 +1,1 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
