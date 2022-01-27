@@ -1,3 +1,1 @@
-## I used to work at a stationery store.  But, I didn't feel like I was going anywhere.
-## 
-## So, I got a job at a travel agency.  Now, I know I'll be going places.
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
