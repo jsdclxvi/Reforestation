@@ -1,1 +1,1 @@
-## People who don't eat gluten are really going against the grain.
+## What did the calculator say to the student? You can count on me.
