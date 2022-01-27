@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## My first time using an elevator was an uplifting experience. The second time let me down.
