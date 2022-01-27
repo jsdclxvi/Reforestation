@@ -1,1 +1,1 @@
-## Sore throats are a pain in the neck!
+## What's brown and sticky? A stick.
