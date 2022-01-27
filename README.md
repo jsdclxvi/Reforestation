@@ -1,1 +1,1 @@
-## What do you call a crowd of chess players bragging about their wins in a hotel lobby? Chess nuts boasting in an open foyer.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
