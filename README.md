@@ -1,1 +1,1 @@
-## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
