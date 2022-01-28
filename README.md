@@ -1,1 +1,1 @@
-## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
