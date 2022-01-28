@@ -1,1 +1,1 @@
-## Chances are if you' ve seen one shopping center, you've seen a mall.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
