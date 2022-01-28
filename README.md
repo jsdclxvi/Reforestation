@@ -1,1 +1,1 @@
-## Why couldn't the kid see the pirate movie? Because it was rated arrr!
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
