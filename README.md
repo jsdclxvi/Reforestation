@@ -1,1 +1,1 @@
-## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
+## Chances are if you' ve seen one shopping center, you've seen a mall.
