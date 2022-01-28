@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
