@@ -1,1 +1,2 @@
-## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
