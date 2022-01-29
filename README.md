@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## What did the beaver say to the tree? It's been nice gnawing you.
