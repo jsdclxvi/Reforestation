@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
