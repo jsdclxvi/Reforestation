@@ -1,1 +1,1 @@
-## What did the beaver say to the tree? It's been nice gnawing you.
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
