@@ -1,1 +1,1 @@
-## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
