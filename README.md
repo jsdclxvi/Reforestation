@@ -1,1 +1,1 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+## Do you know where you can get chicken broth in bulk? The stock market.
