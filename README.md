@@ -1,1 +1,1 @@
-## Just read a few facts about frogs. They were ribbiting.
+## Did you know that ghosts call their true love their ghoul-friend?
