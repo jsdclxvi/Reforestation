@@ -1,1 +1,1 @@
-## A man tried to sell me a coffin today. I told him that's the last thing I need.
+## What did the beaver say to the tree? It's been nice gnawing you.
