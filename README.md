@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
