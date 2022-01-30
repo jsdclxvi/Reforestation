@@ -1,1 +1,1 @@
-## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
