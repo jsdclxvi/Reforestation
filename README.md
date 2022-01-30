@@ -1,1 +1,1 @@
-## What did the beaver say to the tree? It's been nice gnawing you.
+## You know that cemetery up the road? People are dying to get in there.
