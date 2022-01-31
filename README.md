@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## Who did the wizard marry? His ghoul-friend
