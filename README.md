@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## Atheism is a non-prophet organisation.
