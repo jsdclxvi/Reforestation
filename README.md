@@ -1,2 +1,1 @@
-## What's the difference between a seal and a sea lion?
-## An ion! 
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
