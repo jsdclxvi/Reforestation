@@ -1,1 +1,1 @@
-## Why are fish so smart? Because they live in schools!
+## Geology rocks, but Geography is where it's at!
