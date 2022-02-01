@@ -1,1 +1,2 @@
-## How does a French skeleton say hello? Bone-jour.
+## What is the best way to carve?
+## Whittle by whittle.
