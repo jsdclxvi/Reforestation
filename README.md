@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
