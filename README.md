@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
