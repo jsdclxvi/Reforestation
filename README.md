@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
