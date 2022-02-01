@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## What musical instrument is found in the bathroom? A tuba toothpaste.
