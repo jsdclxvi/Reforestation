@@ -1,1 +1,1 @@
-## What musical instrument is found in the bathroom? A tuba toothpaste.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
