@@ -1,1 +1,1 @@
-## My dentist is the best, he even has a little plaque!
+## I'm tired of following my dreams. I'm just going to ask them where they are going and meet up with them later.
