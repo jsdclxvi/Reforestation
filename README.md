@@ -1,1 +1,1 @@
-## Without geometry life is pointless.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
