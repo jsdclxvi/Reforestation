@@ -1,1 +1,1 @@
-## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
