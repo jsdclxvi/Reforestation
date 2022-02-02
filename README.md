@@ -1,1 +1,1 @@
-## Who is the coolest Doctor in the hospital? The hip Doctor!
+## What do you call a cow with two legs? Lean beef.
