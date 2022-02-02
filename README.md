@@ -1,1 +1,1 @@
-## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
+## What time did the man go to the dentist? Tooth hurt-y.
