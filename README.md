@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## Who is the coolest Doctor in the hospital? The hip Doctor!
