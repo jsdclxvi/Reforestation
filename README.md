@@ -1,1 +1,1 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
