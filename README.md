@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## How do the trees get on the internet? They log on.
