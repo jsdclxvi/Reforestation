@@ -1,1 +1,1 @@
-## “My Dog has no nose.” “How does he smell?” “Awful”
+## I wouldn't buy anything with velcro. It's a total rip-off.
