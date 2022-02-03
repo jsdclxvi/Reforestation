@@ -1,1 +1,1 @@
-## Past, present, and future walked into a bar.... It was tense.
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
