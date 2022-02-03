@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
