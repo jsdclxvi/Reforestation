@@ -1,1 +1,1 @@
-## How was the snow globe feeling after the storm? A little shaken.
+## I decided to sell my Hoover… well it was just collecting dust.
