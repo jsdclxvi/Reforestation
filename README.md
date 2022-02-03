@@ -1,1 +1,2 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## Where do cats write notes?
+## Scratch Paper!
