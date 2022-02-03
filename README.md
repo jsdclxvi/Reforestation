@@ -1,1 +1,1 @@
-## Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
