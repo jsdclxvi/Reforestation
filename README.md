@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
