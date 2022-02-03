@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
