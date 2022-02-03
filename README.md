@@ -1,1 +1,1 @@
-## Why was it called the dark ages? Because of all the knights. 
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
