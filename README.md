@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
