@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
