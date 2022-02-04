@@ -1,1 +1,1 @@
-## What kind of bagel can fly? A plain bagel.
+## What do you call your friend who stands in a hole? Phil.
