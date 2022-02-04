@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## Why did the cookie cry? It was feeling crumby.
