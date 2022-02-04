@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## What does an angry pepper do? It gets jalapeño face.
