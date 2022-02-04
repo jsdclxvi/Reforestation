@@ -1,1 +1,1 @@
-## What did one nut say as he chased another nut?  I'm a cashew!
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
