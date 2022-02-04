@@ -1,1 +1,1 @@
-## Want to hear my pizza joke? Never mind, it's too cheesy.
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
