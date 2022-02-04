@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## What kind of bagel can fly? A plain bagel.
