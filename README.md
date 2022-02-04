@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
