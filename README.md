@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## Want to hear my pizza joke? Never mind, it's too cheesy.
