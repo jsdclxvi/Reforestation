@@ -1,1 +1,1 @@
-## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
+## This morning I was wondering where the sun was, but then it dawned on me.
