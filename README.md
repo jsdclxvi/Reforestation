@@ -1,1 +1,1 @@
-## How was the snow globe feeling after the storm? A little shaken.
+## People who don't eat gluten are really going against the grain.
