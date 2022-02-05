@@ -1,1 +1,1 @@
-## “My Dog has no nose.” “How does he smell?” “Awful”
+## Why did the feline fail the lie detector test? Because he be lion.
