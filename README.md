@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
