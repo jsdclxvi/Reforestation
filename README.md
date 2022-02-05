@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## Where does batman go to the bathroom? The batroom.
