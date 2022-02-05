@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## “My Dog has no nose.” “How does he smell?” “Awful”
