@@ -1,1 +1,1 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
