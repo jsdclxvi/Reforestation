@@ -1,1 +1,1 @@
-## Why was the broom late for the meeting? He overswept.
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
