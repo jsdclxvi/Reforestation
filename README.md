@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## Why didn’t the skeleton cross the road? Because he had no guts.
