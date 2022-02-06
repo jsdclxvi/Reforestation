@@ -1,1 +1,1 @@
-## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
+## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
