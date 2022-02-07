@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## This morning I was wondering where the sun was, but then it dawned on me.
