@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
