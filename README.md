@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
