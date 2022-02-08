@@ -1,1 +1,1 @@
-## What is the hardest part about sky diving? The ground.
+## Why do bees hum? Because they don't know the words.
