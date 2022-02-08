@@ -1,1 +1,1 @@
-## I was thinking about moving to Moscow but there is no point Russian into things.
+## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
