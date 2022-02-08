@@ -1,1 +1,1 @@
-## I was in an 80's band called the prevention. We were better than the cure.
+## It doesn't matter how much you push the envelope. It will still be stationary.
