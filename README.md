@@ -1,1 +1,1 @@
-## Did you know crocodiles could grow up to 15 feet? But most just have 4.
+## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
