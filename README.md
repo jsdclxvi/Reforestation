@@ -1,1 +1,1 @@
-## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
+## Did you hear the joke about the wandering nun? She was a roman catholic.
