@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
