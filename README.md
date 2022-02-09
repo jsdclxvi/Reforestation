@@ -1,1 +1,1 @@
-## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
