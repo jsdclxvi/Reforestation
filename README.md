@@ -1,1 +1,1 @@
-## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+## I was wondering why the frisbee was getting bigger, then it hit me.
