@@ -1,1 +1,1 @@
-## I cut my finger chopping cheese, but I think that I may have grater problems.
+## I had a dream that I was a muffler last night. I woke up exhausted!
