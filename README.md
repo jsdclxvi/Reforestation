@@ -1,1 +1,1 @@
-## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
