@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## Velcro… What a rip-off.
