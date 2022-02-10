@@ -1,1 +1,1 @@
-## People saying 'boo! to their friends has risen by 85% in the last year.... That's a frightening statistic.
+## People are making apocalypse jokes like there’s no tomorrow.
