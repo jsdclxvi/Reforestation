@@ -1,1 +1,2 @@
-## I had a dream that I was a muffler last night. I woke up exhausted!
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
