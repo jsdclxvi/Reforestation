@@ -1,1 +1,1 @@
-## Is the pool safe for diving? It deep ends.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
