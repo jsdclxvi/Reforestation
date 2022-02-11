@@ -1,1 +1,1 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
