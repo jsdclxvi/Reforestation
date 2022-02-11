@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## Shout out to my grandma, that's the only way she can hear.
