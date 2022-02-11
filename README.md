@@ -1,1 +1,1 @@
-## Why are fish easy to weigh? Because they have their own scales.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
