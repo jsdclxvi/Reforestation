@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## Why are fish easy to weigh? Because they have their own scales.
