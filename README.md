@@ -1,1 +1,1 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
