@@ -1,1 +1,1 @@
-## What happens to a frog's car when it breaks down? It gets toad.
+## People are making apocalypse jokes like there’s no tomorrow.
