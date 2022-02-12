@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
