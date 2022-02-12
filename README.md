@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
