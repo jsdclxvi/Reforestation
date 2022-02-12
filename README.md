@@ -1,1 +1,1 @@
-## What do you call a monkey in a mine field? A babooooom!
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
