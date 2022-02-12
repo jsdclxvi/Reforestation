@@ -1,1 +1,1 @@
-## Chances are if you' ve seen one shopping center, you've seen a mall.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
