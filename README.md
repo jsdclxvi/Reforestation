@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## What time did the man go to the dentist? Tooth hurt-y.
