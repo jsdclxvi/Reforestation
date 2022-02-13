@@ -1,1 +1,1 @@
-## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
+## Sometimes I tuck my knees into my chest and lean forward.  That’s just how I roll.
