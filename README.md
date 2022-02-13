@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
