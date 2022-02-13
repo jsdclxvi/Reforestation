@@ -1,1 +1,1 @@
-## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
+## If you walk into a forest and cut down a tree, but the tree doesn't understand why you cut it down, do you think it's stumped?
