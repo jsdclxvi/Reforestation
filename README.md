@@ -1,1 +1,1 @@
-## I had a dream that I was a muffler last night. I woke up exhausted!
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
