@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## Why are graveyards so noisy? Because of all the coffin.
