@@ -1,1 +1,2 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
