@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
