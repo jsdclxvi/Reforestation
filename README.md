@@ -1,1 +1,1 @@
-## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
+## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
