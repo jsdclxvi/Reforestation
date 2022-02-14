@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## Have you heard about corduroy pillows?  They're making headlines!
