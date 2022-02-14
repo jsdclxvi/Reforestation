@@ -1,1 +1,1 @@
-## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
+## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
