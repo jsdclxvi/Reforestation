@@ -1,1 +1,1 @@
-## Why was the robot angry? Because someone kept pressing his buttons!
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
