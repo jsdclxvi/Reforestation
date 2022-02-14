@@ -1,1 +1,1 @@
-## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
+## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
