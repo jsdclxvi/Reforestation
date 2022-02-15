@@ -1,1 +1,1 @@
-## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
