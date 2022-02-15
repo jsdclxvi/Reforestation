@@ -1,1 +1,1 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
