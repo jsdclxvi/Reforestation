@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
