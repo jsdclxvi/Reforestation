@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
