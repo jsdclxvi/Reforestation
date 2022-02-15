@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## Why do fish live in salt water? Because pepper makes them sneeze!
