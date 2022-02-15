@@ -1,1 +1,1 @@
-## Doctor you've got you help me, I'm addicted to twitter. Doctor: I don't follow you.
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
