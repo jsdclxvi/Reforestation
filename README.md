@@ -1,1 +1,1 @@
-## This is my step ladder. I never knew my real ladder.
+## Whoever invented the knock-knock joke should get a no bell prize.
