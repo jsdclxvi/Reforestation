@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
