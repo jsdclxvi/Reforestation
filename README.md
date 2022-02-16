@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## Why did the tomato blush? Because it saw the salad dressing.
