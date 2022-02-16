@@ -1,1 +1,2 @@
-## How do you get two whales in a car? Start in England and drive West.
+## Why did Mozart kill all his chickens?
+## Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
