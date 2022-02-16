@@ -1,1 +1,1 @@
-## What did the beaver say to the tree? It's been nice gnawing you.
+## Why do mathematicians hate the U.S.? Because it's indivisible.
