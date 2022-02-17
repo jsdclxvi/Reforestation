@@ -1,1 +1,1 @@
-## If a child refuses to sleep during nap time, are they guilty of resisting a rest?
+## Why do bees have sticky hair? Because they use honey combs!
