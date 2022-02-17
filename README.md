@@ -1,1 +1,1 @@
-## Why did the cookie cry? It was feeling crumby.
+## Have you heard about corduroy pillows?  They're making headlines!
