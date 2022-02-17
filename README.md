@@ -1,1 +1,1 @@
-## What is the leading cause of dry skin? Towels
+## Why do choirs keep buckets handy? So they can carry their tune
