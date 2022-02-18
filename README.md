@@ -1,1 +1,1 @@
-## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
+## I'll tell you what often gets over looked... garden fences.
