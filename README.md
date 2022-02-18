@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## What do you call a crowd of chess players bragging about their wins in a hotel lobby? Chess nuts boasting in an open foyer.
