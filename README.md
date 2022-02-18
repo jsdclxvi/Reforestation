@@ -1,1 +1,1 @@
-## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
