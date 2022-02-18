@@ -1,1 +1,1 @@
-## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
