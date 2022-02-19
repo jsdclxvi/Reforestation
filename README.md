@@ -1,1 +1,1 @@
-## There’s a new type of broom out, it’s sweeping the nation.
+## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
