@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
