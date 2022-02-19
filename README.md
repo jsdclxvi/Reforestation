@@ -1,1 +1,2 @@
-## Leather is great for sneaking around because it's made of hide.
+## What is the best way to carve?
+## Whittle by whittle.
