@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
