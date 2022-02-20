@@ -1,1 +1,1 @@
-## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
