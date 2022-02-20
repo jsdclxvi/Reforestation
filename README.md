@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## I wouldn't buy anything with velcro. It's a total rip-off.
