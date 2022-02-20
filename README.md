@@ -1,1 +1,1 @@
-## My pet mouse 'Elvis' died last night. He was caught in a trap..
+## Want to hear a joke about construction? Nah, I'm still working on it.
