@@ -1,1 +1,1 @@
-## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
