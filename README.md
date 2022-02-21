@@ -1,1 +1,1 @@
-## Why was it called the dark ages? Because of all the knights. 
+## Why did the tree go to the dentist? It needed a root canal.
