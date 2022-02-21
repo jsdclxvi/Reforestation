@@ -1,1 +1,1 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
