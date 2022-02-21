@@ -1,1 +1,1 @@
-## What kind of dinosaur loves to sleep? A stega-snore-us.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
