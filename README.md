@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
