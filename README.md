@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## "Dad, I'm hungry." Hello, Hungry. I'm Dad.
