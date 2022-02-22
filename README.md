@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
