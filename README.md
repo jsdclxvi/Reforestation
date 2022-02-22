@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## What do you call a cow with no legs? Ground beef.
