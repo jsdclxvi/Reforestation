@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## Why was it called the dark ages? Because of all the knights. 
