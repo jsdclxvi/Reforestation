@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
