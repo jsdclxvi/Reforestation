@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## I'd like to start a diet, but I've got too much on my plate right now.
