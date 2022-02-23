@@ -1,1 +1,1 @@
-## How do locomotives know where they're going? Lots of training
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
