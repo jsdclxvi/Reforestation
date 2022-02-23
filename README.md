@@ -1,1 +1,1 @@
-## What do you call an old snowman? Water.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
