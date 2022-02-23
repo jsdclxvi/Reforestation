@@ -1,1 +1,1 @@
-## Can I watch the TV? Dad: Yes, but don’t turn it on.
+## Why do choirs keep buckets handy? So they can carry their tune
