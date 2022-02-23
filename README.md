@@ -1,1 +1,1 @@
-## Two muffins were sitting in an oven, and the first looks over to the second, and says, “man, it’s really hot in here”. The second looks over at the first with a surprised look, and answers, “WHOA, a talking muffin!”
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
