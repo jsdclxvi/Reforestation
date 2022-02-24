@@ -1,1 +1,1 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
