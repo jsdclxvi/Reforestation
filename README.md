@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## I ordered a chicken and an egg from Amazon. I'll let you know.
