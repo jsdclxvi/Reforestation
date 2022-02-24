@@ -1,1 +1,1 @@
-## I fear for the calendar, its days are numbered.
+## Writing with a broken pencil is pointless.
