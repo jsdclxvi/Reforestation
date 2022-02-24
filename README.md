@@ -1,1 +1,1 @@
-## I don't trust stairs. They're always up to something.
+## I gave all my dead batteries away today, free of charge.
