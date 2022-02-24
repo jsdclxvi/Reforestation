@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
