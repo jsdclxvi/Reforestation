@@ -1,1 +1,1 @@
-## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
+## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
