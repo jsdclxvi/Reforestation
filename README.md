@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
