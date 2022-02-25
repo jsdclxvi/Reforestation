@@ -1,1 +1,1 @@
-## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
