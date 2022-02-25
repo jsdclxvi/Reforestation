@@ -1,1 +1,1 @@
-## Why was the big cat disqualified from the race? Because it was a cheetah.
+## Why did the tree go to the dentist? It needed a root canal.
