@@ -1,1 +1,1 @@
-## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
