@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## Why do pirates not know the alphabet? They always get stuck at "C".
