@@ -1,1 +1,1 @@
-## Toasters were the first form of pop-up notifications.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
