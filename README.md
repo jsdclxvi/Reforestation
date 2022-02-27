@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## Why didn’t the skeleton cross the road? Because he had no guts.
