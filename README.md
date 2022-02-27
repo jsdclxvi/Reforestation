@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## I’m only familiar with 25 letters in the English language. I don’t know why.
