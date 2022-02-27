@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
