@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
