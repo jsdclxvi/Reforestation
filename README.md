@@ -1,1 +1,1 @@
-## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
