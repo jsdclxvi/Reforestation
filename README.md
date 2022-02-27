@@ -1,1 +1,1 @@
-## What do bees do after they are married? They go on a honeymoon.
+## What do you get when you cross a snowman with a vampire? Frostbite.
