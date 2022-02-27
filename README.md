@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## I’m on a whiskey diet. I’ve lost three days already.
