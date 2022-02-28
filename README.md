@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## When does a joke become a dad joke? When it becomes apparent.
