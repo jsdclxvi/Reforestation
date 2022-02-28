@@ -1,1 +1,1 @@
-## What do you call a monkey in a mine field? A babooooom!
+## People who don't eat gluten are really going against the grain.
