@@ -1,1 +1,1 @@
-## What do you get when you cross a rabbit with a water hose? Hare spray.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
