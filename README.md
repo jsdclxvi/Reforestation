@@ -1,1 +1,2 @@
-## Recent survey revealed 6 out of 7 dwarf's aren't happy.
+## What's large, grey, and doesn't matter?
+## An irrelephant.
