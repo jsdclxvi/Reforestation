@@ -1,1 +1,1 @@
-## Where did you learn to make ice cream? Sunday school.
+## Why do crabs never give to charity? Because they’re shellfish.
