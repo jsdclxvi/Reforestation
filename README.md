@@ -1,1 +1,1 @@
-## A farmer had 297 cows, when he rounded them up, he found he had 300
+## Why does Superman get invited to dinners? Because he is a Supperhero.
