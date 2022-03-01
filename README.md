@@ -1,1 +1,1 @@
-## What do you call a fish with no eyes? A fsh.
+## Dad, can you put my shoes on? I don't think they'll fit me.
