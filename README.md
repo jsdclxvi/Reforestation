@@ -1,1 +1,1 @@
-## What do you give a sick lemon? Lemonaid.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
