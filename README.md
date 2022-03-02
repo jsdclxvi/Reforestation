@@ -1,1 +1,1 @@
-## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
+## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
