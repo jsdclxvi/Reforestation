@@ -1,1 +1,2 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## What's the difference between a seal and a sea lion?
+## An ion! 
