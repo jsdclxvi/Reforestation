@@ -1,1 +1,1 @@
-## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
+## I thought about going on an all-almond diet. But that's just nuts.
