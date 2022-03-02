@@ -1,1 +1,1 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## What do you do when your bunny gets wet? You get your hare dryer.
