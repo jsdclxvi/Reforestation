@@ -1,1 +1,1 @@
-## Why do pirates not know the alphabet? They always get stuck at "C".
+## What did the mountain climber name his son? Cliff.
