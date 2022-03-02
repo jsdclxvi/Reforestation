@@ -1,1 +1,1 @@
-## I went to the doctor today and he told me I had type A blood but it was a type O.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
