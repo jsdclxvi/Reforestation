@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
