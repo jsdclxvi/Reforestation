@@ -1,1 +1,1 @@
-## A termite walks into a bar and asks “Is the bar tender here?”
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
