@@ -1,1 +1,1 @@
-## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
+## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
