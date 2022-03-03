@@ -1,1 +1,1 @@
-## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
+## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
