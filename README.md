@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## I was thinking about moving to Moscow but there is no point Russian into things.
