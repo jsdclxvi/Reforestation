@@ -1,1 +1,1 @@
-## I was thinking about moving to Moscow but there is no point Russian into things.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
