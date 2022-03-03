@@ -1,1 +1,1 @@
-## What kind of tree fits in your hand? A palm tree!
+## Why was Pavlov's beard so soft?  Because he conditioned it.
