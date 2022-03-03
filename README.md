@@ -1,1 +1,1 @@
-## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
