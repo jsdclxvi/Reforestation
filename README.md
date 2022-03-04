@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## What does a pirate pay for his corn? A buccaneer!
