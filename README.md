@@ -1,1 +1,1 @@
-## Why did the man run around his bed? Because he was trying to catch up on his sleep!
+## Why do crabs never give to charity? Because they’re shellfish.
