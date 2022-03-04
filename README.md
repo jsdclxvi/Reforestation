@@ -1,1 +1,1 @@
-## This is my step ladder. I never knew my real ladder.
+## What do you call a droid that takes the long way around? R2 detour.
