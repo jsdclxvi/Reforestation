@@ -1,1 +1,1 @@
-## Don't trust atoms. They make up everything.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
