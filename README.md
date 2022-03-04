@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## Don't tell secrets in corn fields. Too many ears around.
