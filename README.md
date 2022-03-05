@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## I used to work for a soft drink can crusher. It was soda pressing.
