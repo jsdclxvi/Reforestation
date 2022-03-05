@@ -1,1 +1,1 @@
-## My cat was just sick on the carpet, I don’t think it’s feline well.
+## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
