@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## How do locomotives know where they're going? Lots of training
