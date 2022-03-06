@@ -1,1 +1,1 @@
-## Why was the big cat disqualified from the race? Because it was a cheetah.
+## I knew a guy who collected candy canes, they were all in mint condition
