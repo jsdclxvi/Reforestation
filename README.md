@@ -1,1 +1,1 @@
-## Every night at 11:11, I make a wish that someone will come fix my broken clock.
+## You can't trust a ladder. It will always let you down
