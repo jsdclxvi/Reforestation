@@ -1,1 +1,1 @@
-## What do prisoners use to call each other? Cell phones.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
