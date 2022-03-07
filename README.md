@@ -1,1 +1,2 @@
-## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
