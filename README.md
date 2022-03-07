@@ -1,1 +1,1 @@
-## When Dad drops a pea off of his plate ‘oh dear I’ve pee’d on the table!
+## Why did the half blind man fall in the well? Because he couldn't see that well!
