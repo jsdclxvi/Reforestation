@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## I used to work in a shoe recycling shop. It was sole destroying.
