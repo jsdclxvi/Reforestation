@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## Where do rabbits go after they get married? On a bunny-moon.
