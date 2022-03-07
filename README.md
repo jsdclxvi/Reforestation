@@ -1,2 +1,1 @@
-## Why don't you find hippopotamuses hiding in trees?
-## They're really good at it.
+## When Dad drops a pea off of his plate ‘oh dear I’ve pee’d on the table!
