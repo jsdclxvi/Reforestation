@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## What does an angry pepper do? It gets jalapeño face.
