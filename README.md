@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## When do doctors get angry? When they run out of patients.
