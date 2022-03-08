@@ -1,1 +1,1 @@
-## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
+## Why is the ocean always blue? Because the shore never waves back.
