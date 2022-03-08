@@ -1,1 +1,1 @@
-## Which side of the chicken has more feathers? The outside.
+## What’s E.T. short for? He’s only got little legs.
