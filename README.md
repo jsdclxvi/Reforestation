@@ -1,1 +1,2 @@
-## What do you call a cow on a trampoline? A milk shake!
+## What is the best way to carve?
+## Whittle by whittle.
