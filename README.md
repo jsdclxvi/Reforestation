@@ -1,1 +1,1 @@
-## Where does Napoleon keep his armies? In his sleevies.
+## Which side of the chicken has more feathers? The outside.
