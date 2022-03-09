@@ -1,3 +1,1 @@
-## What is the difference between ignorance and apathy?
-## 
-## I don't know and I don't care.
+## What concert costs only 45 cents? 50 cent featuring Nickelback.
