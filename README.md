@@ -1,1 +1,3 @@
-## "Dad, I'm hungry." Hello, Hungry. I'm Dad.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
