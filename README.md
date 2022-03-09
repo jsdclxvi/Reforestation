@@ -1,1 +1,1 @@
-## It was raining cats and dogs the other day. I almost stepped in a poodle.
+## What time did the man go to the dentist? Tooth hurt-y.
