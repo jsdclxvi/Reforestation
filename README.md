@@ -1,1 +1,1 @@
-## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
+## There's not really any training for garbagemen. They just pick things up as they go.
