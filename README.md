@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
