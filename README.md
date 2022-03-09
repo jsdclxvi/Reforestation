@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## Did you know that ghosts call their true love their ghoul-friend?
