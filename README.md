@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## Why is the ocean always blue? Because the shore never waves back.
