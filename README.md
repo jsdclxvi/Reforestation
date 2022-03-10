@@ -1,1 +1,1 @@
-## Toasters were the first form of pop-up notifications.
+## Bad at golf? Join the club.
