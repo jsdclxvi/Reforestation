@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## A Skeleton walked into a bar he said I need a beer and a mop
