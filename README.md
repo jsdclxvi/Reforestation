@@ -1,1 +1,1 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## I ordered a chicken and an egg from Amazon. I'll let you know.
