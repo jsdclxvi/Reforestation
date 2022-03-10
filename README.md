@@ -1,1 +1,1 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## There's not really any training for garbagemen. They just pick things up as they go.
