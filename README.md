@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## What do you call a cow on a trampoline? A milk shake!
