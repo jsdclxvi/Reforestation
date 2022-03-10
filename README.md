@@ -1,1 +1,1 @@
-## Bad at golf? Join the club.
+## What do you call a duck that gets all A's? A wise quacker.
