@@ -1,1 +1,1 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## What is a vampire's favorite fruit? A blood orange.
