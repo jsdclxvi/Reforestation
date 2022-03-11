@@ -1,1 +1,1 @@
-## Is there a hole in your shoe? No… Then how’d you get your foot in it?
+## Want to hear a joke about construction? Nah, I'm still working on it.
