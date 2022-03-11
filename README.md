@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## What’s E.T. short for? He’s only got little legs.
