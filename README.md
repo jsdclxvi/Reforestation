@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## Where do sheep go to get their hair cut? The baa-baa shop.
