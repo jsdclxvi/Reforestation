@@ -1,1 +1,1 @@
-## How many tickles does it take to tickle an octopus? Ten-tickles!
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
