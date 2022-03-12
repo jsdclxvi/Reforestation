@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
