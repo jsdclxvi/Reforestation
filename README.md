@@ -1,1 +1,1 @@
-## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
