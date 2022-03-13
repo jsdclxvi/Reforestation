@@ -1,1 +1,1 @@
-## What do you call a cow on a trampoline? A milk shake!
+## A cannibal is someone who is fed up with people.
