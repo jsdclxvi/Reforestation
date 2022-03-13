@@ -1,1 +1,1 @@
-## What did the beaver say to the tree? It's been nice gnawing you.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
