@@ -1,1 +1,1 @@
-## What's the worst thing about ancient history class? The teachers tend to Babylon.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
