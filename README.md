@@ -1,1 +1,1 @@
-## What’s Forest Gump’s Facebook password? 1forest1
+## I’m on a whiskey diet. I’ve lost three days already.
