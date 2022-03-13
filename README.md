@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## What do birds give out on Halloween? Tweets.
