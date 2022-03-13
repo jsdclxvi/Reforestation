@@ -1,1 +1,1 @@
-## What do birds give out on Halloween? Tweets.
+## What do I look like? A JOKE MACHINE!?
