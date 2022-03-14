@@ -1,1 +1,1 @@
-## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
