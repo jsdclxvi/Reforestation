@@ -1,1 +1,1 @@
-## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
