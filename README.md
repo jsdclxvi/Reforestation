@@ -1,1 +1,1 @@
-## Why was ten scared of seven? Because seven ate nine.
+## Don't tell secrets in corn fields. Too many ears around.
