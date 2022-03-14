@@ -1,1 +1,1 @@
-## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
