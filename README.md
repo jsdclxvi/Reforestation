@@ -1,1 +1,2 @@
-## Why is it so windy inside an arena? All those fans.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
