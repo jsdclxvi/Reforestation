@@ -1,1 +1,1 @@
-## What kind of music do mummy's like? Rap
+## What do you call someone with no nose? Nobody knows.
