@@ -1,1 +1,1 @@
-## Why can't your nose be 12 inches long? Because then it'd be a foot!
+## I asked a frenchman if he played video games. He said "Wii"
