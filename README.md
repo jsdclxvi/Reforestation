@@ -1,3 +1,1 @@
-## Never Trust Someone With Graph Paper...
-## 
-## They're always plotting something.
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
