@@ -1,1 +1,1 @@
-## Where does Fonzie like to go for lunch? Chick-Fil-Eyyyyyyyy.
+## Why didn’t the skeleton cross the road? Because he had no guts.
