@@ -1,1 +1,1 @@
-## You know that cemetery up the road? People are dying to get in there.
+## Two peanuts were walking down the street. One was a salted.
