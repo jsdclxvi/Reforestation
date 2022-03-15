@@ -1,1 +1,3 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
