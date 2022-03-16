@@ -1,1 +1,1 @@
-## I’m reading a book on the history of glue – can’t put it down.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
