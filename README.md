@@ -1,1 +1,2 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
