@@ -1,1 +1,1 @@
-## What do you give a sick lemon? Lemonaid.
+## I couldn't figure out how the seat belt worked. Then it just clicked.
