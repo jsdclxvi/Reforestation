@@ -1,1 +1,2 @@
-## What is the hardest part about sky diving? The ground.
+## What's the difference between a seal and a sea lion?
+## An ion! 
