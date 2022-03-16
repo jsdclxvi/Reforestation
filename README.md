@@ -1,2 +1,1 @@
-## What's the difference between a seal and a sea lion?
-## An ion! 
+## It was raining cats and dogs the other day. I almost stepped in a poodle.
