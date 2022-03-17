@@ -1,1 +1,2 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
