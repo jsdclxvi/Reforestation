@@ -1,1 +1,1 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## I saw a documentary on TV last night about how they put ships together.  It was rivetting.
