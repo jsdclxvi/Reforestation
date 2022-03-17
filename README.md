@@ -1,1 +1,1 @@
-## Why did the worker get fired from the orange juice factory? Lack of concentration.
+## Thanks for explaining the word "many" to me. It means a lot.
