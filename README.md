@@ -1,1 +1,1 @@
-## What did the dog say to the two trees? Bark bark.
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
