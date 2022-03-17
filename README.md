@@ -1,1 +1,1 @@
-## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
