@@ -1,1 +1,1 @@
-## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
+## Why did the coffee file a police report? It got mugged.
