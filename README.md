@@ -1,2 +1,1 @@
-## Why don't you find hippopotamuses hiding in trees?
-## They're really good at it.
+## Whenever the cashier at the grocery store asks my dad if he would like the milk in a bag he replies, ‘No, just leave it in the carton!’
