@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
