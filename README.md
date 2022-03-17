@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
