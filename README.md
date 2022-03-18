@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## Why did the melons plan a big wedding? Because they cantaloupe!
