@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## I considered building the patio by myself. But I didn't have the stones.
