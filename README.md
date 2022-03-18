@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
