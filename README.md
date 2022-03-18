@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## Don't tell secrets in corn fields. Too many ears around.
