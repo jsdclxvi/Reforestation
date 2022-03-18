@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
