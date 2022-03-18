@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
