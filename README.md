@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## What lies at the bottom of the ocean and twitches? A nervous wreck.
