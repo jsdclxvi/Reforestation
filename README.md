@@ -1,1 +1,1 @@
-## Have you heard about corduroy pillows?  They're making headlines!
+## Why did the kid throw the clock out the window? He wanted to see time fly!
