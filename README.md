@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## Geology rocks, but Geography is where it's at!
