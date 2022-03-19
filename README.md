@@ -1,1 +1,1 @@
-## I have kleptomania, but when it gets bad, I take something for it.
+## Dad, can you put my shoes on? I don't think they'll fit me.
