@@ -1,1 +1,1 @@
-## Two silk worms had a race. They ended up in a tie.
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
