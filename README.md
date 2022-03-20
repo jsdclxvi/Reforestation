@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
