@@ -1,1 +1,1 @@
-## What did Michael Jackson name his denim store?    Billy Jeans!
+## What do you call a bear with no teeth? A gummy bear!
