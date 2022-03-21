@@ -1,1 +1,1 @@
-## I'll tell you what often gets over looked... garden fences.
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
