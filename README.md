@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
