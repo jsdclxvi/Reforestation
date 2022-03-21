@@ -1,1 +1,2 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
