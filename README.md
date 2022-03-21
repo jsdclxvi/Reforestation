@@ -1,1 +1,1 @@
-## Why are fish so smart? Because they live in schools!
+## What's blue and not very heavy?  Light blue.
