@@ -1,1 +1,1 @@
-## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
+## I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
