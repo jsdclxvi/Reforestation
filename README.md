@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
