@@ -1,1 +1,1 @@
-## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
