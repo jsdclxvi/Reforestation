@@ -1,1 +1,3 @@
-## How are false teeth like stars? They come out at night!
+## What was the pumpkin’s favorite sport?
+## 
+## Squash.
