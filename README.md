@@ -1,1 +1,1 @@
-## I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
