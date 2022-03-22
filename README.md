@@ -1,1 +1,1 @@
-## What did the ocean say to the beach? Thanks for all the sediment.
+## What do you get when you cross a chicken with a skunk? A fowl smell!
