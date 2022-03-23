@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## How does Darth Vader like his toast? On the dark side.
