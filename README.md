@@ -1,1 +1,3 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
