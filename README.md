@@ -1,1 +1,1 @@
-## What do you call a boy who stopped digging holes? Douglas.
+## When does a joke become a dad joke? When it becomes apparent.
