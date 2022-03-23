@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
