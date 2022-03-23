@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
