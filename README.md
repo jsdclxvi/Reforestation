@@ -1,1 +1,1 @@
-## Did you hear the one about the giant pickle?  He was kind of a big dill.
+## Do you know where you can get chicken broth in bulk? The stock market.
