@@ -1,1 +1,2 @@
-## Do you know where you can get chicken broth in bulk? The stock market.
+## What is red and smells like blue paint?
+## Red paint!
