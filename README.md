@@ -1,1 +1,1 @@
-## Conjunctivitis.com – now that’s a site for sore eyes.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
