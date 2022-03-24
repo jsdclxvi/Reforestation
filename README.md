@@ -1,1 +1,1 @@
-## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
+## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
