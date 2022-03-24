@@ -1,1 +1,1 @@
-## Breaking news! Energizer Bunny arrested – charged with battery.
+## What's the best thing about elevator jokes? They work on so many levels.
