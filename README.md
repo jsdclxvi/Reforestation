@@ -1,1 +1,1 @@
-## Doctor you've got to help me, I'm addicted to Twitter. Doctor: I don't follow you.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
