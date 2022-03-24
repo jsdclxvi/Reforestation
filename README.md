@@ -1,1 +1,1 @@
-## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+## This morning I was wondering where the sun was, but then it dawned on me.
