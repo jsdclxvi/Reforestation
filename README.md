@@ -1,1 +1,1 @@
-## What type of music do balloons hate? Pop music!
+## Don't tell secrets in corn fields. Too many ears around.
