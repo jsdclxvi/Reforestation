@@ -1,1 +1,1 @@
-## Where do sheep go to get their hair cut? The baa-baa shop.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
