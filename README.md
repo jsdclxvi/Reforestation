@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
