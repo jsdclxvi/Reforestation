@@ -1,1 +1,1 @@
-## It's only a murder of crows if there's probable caws.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
