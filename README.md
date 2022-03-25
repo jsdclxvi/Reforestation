@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## Why did the m&m go to school? Because it wanted to be a Smartie!
