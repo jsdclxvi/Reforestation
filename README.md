@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
