@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
