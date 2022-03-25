@@ -1,1 +1,3 @@
-## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
+## What was the pumpkin’s favorite sport?
+## 
+## Squash.
