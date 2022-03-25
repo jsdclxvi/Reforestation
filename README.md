@@ -1,1 +1,1 @@
-## Don't trust atoms. They make up everything.
+## Where do hamburgers go to dance? The meat-ball.
