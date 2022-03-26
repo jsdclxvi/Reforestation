@@ -1,1 +1,1 @@
-## I fear for the calendar, its days are numbered.
+## Why do ducks make great detectives? They always quack the case.
