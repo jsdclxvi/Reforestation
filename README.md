@@ -1,1 +1,1 @@
-## I had a dream that I was a muffler last night. I woke up exhausted!
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
