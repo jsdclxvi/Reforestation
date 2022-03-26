@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## What do you call two barracuda fish?  A Pairacuda!
