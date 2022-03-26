@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
