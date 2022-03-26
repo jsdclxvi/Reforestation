@@ -1,1 +1,1 @@
-## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
+## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
