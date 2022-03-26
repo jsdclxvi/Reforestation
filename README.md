@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## Did you know that ghosts call their true love their ghoul-friend?
