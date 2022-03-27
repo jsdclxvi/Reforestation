@@ -1,1 +1,1 @@
-## Just read a few facts about frogs. They were ribbiting.
+## There's not really any training for garbagemen. They just pick things up as they go.
