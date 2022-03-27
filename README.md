@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## Mountains aren't just funny, they are hill areas
