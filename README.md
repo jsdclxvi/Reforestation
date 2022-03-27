@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## Why do bears have hairy coats? Fur protection.
