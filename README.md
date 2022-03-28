@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
