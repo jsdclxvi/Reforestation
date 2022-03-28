@@ -1,1 +1,1 @@
-## At the boxing match, the dad got into the popcorn line and the line for hot dogs, but he wanted to stay out of the punchline.
+## How do you find Will Smith in the snow?  Look for fresh prints.
