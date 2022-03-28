@@ -1,1 +1,1 @@
-## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
+## It doesn't matter how much you push the envelope. It will still be stationary.
