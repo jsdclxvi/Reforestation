@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## Where do you learn to make banana splits? At sundae school.
