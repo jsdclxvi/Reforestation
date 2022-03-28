@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## Our wedding was so beautiful, even the cake was in tiers.
