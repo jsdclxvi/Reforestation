@@ -1,1 +1,1 @@
-## What do you call a monkey in a mine field? A babooooom!
+## Where do hamburgers go to dance? The meat-ball.
