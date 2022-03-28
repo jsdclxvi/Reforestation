@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## Have you ever heard of a music group called Cellophane? They mostly wrap.
