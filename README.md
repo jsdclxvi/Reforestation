@@ -1,1 +1,1 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
