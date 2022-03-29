@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## To the person who stole my anti-depressant pills: I hope you're happy now.
