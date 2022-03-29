@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## Someone broke into my house last night and stole my limbo trophy. How low can you go?
