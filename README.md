@@ -1,1 +1,1 @@
-## They laughed when I said I wanted to be a comedian – they’re not laughing now.
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
