@@ -1,1 +1,2 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## Where do cats write notes?
+## Scratch Paper!
