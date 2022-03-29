@@ -1,1 +1,1 @@
-## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
