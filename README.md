@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
