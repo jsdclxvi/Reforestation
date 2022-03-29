@@ -1,1 +1,1 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
