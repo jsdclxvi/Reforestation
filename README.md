@@ -1,1 +1,1 @@
-## What do you call a boy who stopped digging holes? Douglas.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
