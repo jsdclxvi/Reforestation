@@ -1,1 +1,1 @@
-## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+## Did you hear the news? FedEx and UPS are merging. They’re going to go by the name Fed-Up from now on.
