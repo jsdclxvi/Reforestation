@@ -1,1 +1,1 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## How do you get a baby alien to sleep?  You rocket.
