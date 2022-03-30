@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## I went to the doctor today and he told me I had type A blood but it was a type O.
