@@ -1,1 +1,1 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
