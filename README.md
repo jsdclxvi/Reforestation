@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## How are false teeth like stars? They come out at night!
