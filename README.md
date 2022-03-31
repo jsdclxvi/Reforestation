@@ -1,1 +1,1 @@
-## I'd like to start a diet, but I've got too much on my plate right now.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
