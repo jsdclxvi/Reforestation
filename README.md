@@ -1,1 +1,1 @@
-## Did you hear about the runner who was criticized? He just took it in stride
+## Why did the feline fail the lie detector test? Because he be lion.
