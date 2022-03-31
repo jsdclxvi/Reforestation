@@ -1,1 +1,2 @@
-## How are false teeth like stars? They come out at night!
+## What is red and smells like blue paint?
+## Red paint!
