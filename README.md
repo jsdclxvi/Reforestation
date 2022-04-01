@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-## An irrelephant.
+## Did you know that ghosts call their true love their ghoul-friend?
