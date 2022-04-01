@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## This furniture store keeps emailing me, all I wanted was one night stand!
