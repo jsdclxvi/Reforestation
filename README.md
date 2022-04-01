@@ -1,1 +1,1 @@
-## What did the fish say when it swam into a wall? Damn!
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
