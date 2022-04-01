@@ -1,1 +1,2 @@
-## Two peanuts were walking down the street. One was a salted.
+## What's large, grey, and doesn't matter?
+## An irrelephant.
