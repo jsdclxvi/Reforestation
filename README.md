@@ -1,1 +1,1 @@
-## Don't trust atoms. They make up everything.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
