@@ -1,1 +1,1 @@
-## Doctor you've got to help me, I'm addicted to Twitter. Doctor: I don't follow you.
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
