@@ -1,1 +1,1 @@
-## Where’s the bin? Dad: I haven’t been anywhere!
+## Atheism is a non-prophet organisation.
