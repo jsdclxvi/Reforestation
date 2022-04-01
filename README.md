@@ -1,1 +1,1 @@
-## What do you call a fish with no eyes? A fsh.
+## Don't trust atoms. They make up everything.
