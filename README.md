@@ -1,1 +1,1 @@
-## What's black and white and read all over? The newspaper.
+## Why do crabs never give to charity? Because they’re shellfish.
