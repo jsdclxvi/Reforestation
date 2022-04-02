@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
