@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
