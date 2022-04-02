@@ -1,1 +1,1 @@
-## I wish I could clean mirrors for a living. It's just something I can see myself doing.
+## How come the stadium got hot after the game? Because all of the fans left.
