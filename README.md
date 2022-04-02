@@ -1,1 +1,1 @@
-## I am terrified of elevators. I’m going to start taking steps to avoid them.
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
