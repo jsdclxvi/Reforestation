@@ -1,1 +1,1 @@
-## "What time is it?" I don't know... it keeps changing.
+## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
