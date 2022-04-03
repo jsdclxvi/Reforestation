@@ -1,1 +1,1 @@
-## How does Darth Vader like his toast? On the dark side.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
