@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
