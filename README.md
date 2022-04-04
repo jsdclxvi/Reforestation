@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
