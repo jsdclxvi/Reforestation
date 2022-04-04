@@ -1,1 +1,2 @@
-## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
