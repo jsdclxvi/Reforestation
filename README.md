@@ -1,1 +1,1 @@
-## How do you fix a broken pizza? With tomato paste.
+## Why do pirates not know the alphabet? They always get stuck at "C".
