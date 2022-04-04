@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## What did the ocean say to the shore? Nothing, it just waved.
