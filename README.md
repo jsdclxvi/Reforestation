@@ -1,1 +1,3 @@
-## When is a door not a door? When it's ajar.
+## What was the pumpkin’s favorite sport?
+## 
+## Squash.
