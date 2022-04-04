@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## When is a door not a door? When it's ajar.
