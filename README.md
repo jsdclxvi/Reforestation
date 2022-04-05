@@ -1,3 +1,1 @@
-## What was the pumpkin’s favorite sport?
-## 
-## Squash.
+## A termite walks into a bar and asks “Is the bar tender here?”
