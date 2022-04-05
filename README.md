@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## What musical instrument is found in the bathroom? A tuba toothpaste.
