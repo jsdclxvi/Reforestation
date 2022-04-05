@@ -1,1 +1,3 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## What was the pumpkin’s favorite sport?
+## 
+## Squash.
