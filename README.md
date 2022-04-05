@@ -1,1 +1,1 @@
-## I tried to write a chemistry joke, but could never get a reaction.
+## Have you heard about corduroy pillows?  They're making headlines!
