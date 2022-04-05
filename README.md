@@ -1,1 +1,2 @@
-## Have you heard about corduroy pillows?  They're making headlines!
+## What's large, grey, and doesn't matter?
+## An irrelephant.
