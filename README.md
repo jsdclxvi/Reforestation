@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## Our wedding was so beautiful, even the cake was in tiers.
