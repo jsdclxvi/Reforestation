@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## How can you tell a vampire has a cold? They start coffin.
