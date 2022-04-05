@@ -1,1 +1,1 @@
-## A termite walks into a bar and asks “Is the bar tender here?”
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
