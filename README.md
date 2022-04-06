@@ -1,1 +1,1 @@
-## How do you make holy water? You boil the hell out of it.
+## Why can't a bicycle stand on its own? It's two-tired.
