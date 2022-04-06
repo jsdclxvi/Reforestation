@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## How do you make holy water? You boil the hell out of it.
