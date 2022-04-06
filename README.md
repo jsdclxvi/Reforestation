@@ -1,1 +1,1 @@
-## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
