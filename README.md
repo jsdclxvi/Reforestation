@@ -1,1 +1,1 @@
-## I am terrified of elevators. I’m going to start taking steps to avoid them.
+## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
