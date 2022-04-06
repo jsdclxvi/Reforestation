@@ -1,1 +1,1 @@
-## What kind of dinosaur loves to sleep? A stega-snore-us.
+## How many South Americans does it take to change a lightbulb? A Brazilian
