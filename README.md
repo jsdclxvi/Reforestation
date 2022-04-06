@@ -1,1 +1,1 @@
-## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
