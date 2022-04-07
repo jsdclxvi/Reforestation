@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
