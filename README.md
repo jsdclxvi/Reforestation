@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## What did the ocean say to the beach? Thanks for all the sediment.
