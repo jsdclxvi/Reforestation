@@ -1,1 +1,1 @@
-## What did Michael Jackson name his denim store?    Billy Jeans!
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
