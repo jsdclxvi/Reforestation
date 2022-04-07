@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## Mountains aren't just funny, they are hill areas
