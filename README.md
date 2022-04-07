@@ -1,1 +1,1 @@
-## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
