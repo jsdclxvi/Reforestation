@@ -1,1 +1,1 @@
-## What did the ocean say to the beach? Thanks for all the sediment.
+## Whoever invented the knock-knock joke should get a no bell prize.
