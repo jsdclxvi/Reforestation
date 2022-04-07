@@ -1,1 +1,1 @@
-## What is the tallest building in the world? The library – it’s got the most stories!
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
