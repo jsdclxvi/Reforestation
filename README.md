@@ -1,1 +1,1 @@
-## I used to be a banker, but I lost interest.
+## Did you know that ghosts call their true love their ghoul-friend?
