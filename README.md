@@ -1,1 +1,1 @@
-## I had a dream that I was a muffler last night. I woke up exhausted!
+## Don't tell secrets in corn fields. Too many ears around.
