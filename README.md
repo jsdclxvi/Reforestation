@@ -1,1 +1,1 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
