@@ -1,1 +1,1 @@
-## What do you call a boy who stopped digging holes? Douglas.
+## Sore throats are a pain in the neck!
