@@ -1,1 +1,1 @@
-## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
+## I had a dream that I was a muffler last night. I woke up exhausted!
