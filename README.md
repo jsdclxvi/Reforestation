@@ -1,1 +1,1 @@
-## Thanks for explaining the word "many" to me. It means a lot.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
