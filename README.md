@@ -1,1 +1,1 @@
-## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
