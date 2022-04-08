@@ -1,1 +1,1 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
