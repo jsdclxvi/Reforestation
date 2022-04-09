@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## Did you hear about the cheese who saved the world? It was Legend-dairy!
