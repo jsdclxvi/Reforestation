@@ -1,1 +1,1 @@
-## How many South Americans does it take to change a lightbulb? A Brazilian
+## I tried to write a chemistry joke, but could never get a reaction.
