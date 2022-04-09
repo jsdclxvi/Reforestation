@@ -1,1 +1,1 @@
-## Why do birds fly south for the winter? Because it's too far to walk.
+## Why do ducks make great detectives? They always quack the case.
