@@ -1,1 +1,1 @@
-## I tried to write a chemistry joke, but could never get a reaction.
+## Why do birds fly south for the winter? Because it's too far to walk.
