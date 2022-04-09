@@ -1,1 +1,1 @@
-## If a child refuses to sleep during nap time, are they guilty of resisting a rest?
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
