@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
