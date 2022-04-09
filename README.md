@@ -1,1 +1,1 @@
-## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
+## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
