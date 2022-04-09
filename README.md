@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
