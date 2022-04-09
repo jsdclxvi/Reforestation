@@ -1,1 +1,1 @@
-## It takes guts to be an organ donor.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
