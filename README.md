@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## You know that cemetery up the road? People are dying to get in there.
