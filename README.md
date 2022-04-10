@@ -1,1 +1,1 @@
-## How does a scientist freshen their breath? With experi-mints!
+## What kind of pants do ghosts wear? Boo jeans.
