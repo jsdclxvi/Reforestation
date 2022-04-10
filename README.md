@@ -1,3 +1,1 @@
-## What was the pumpkin’s favorite sport?
-## 
-## Squash.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
