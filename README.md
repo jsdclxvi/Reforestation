@@ -1,1 +1,1 @@
-## What does a clock do when it's hungry? It goes back four seconds!
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
