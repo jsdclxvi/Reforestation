@@ -1,1 +1,1 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## Why was ten scared of seven? Because seven ate nine.
