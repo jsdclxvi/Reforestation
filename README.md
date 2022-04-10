@@ -1,1 +1,1 @@
-## What kind of tree fits in your hand? A palm tree!
+## Did you hear about the guy whose whole left side was cut off? He's all right now.
