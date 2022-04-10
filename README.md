@@ -1,1 +1,1 @@
-## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
