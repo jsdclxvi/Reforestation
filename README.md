@@ -1,1 +1,1 @@
-## How many South Americans does it take to change a lightbulb? A Brazilian
+## Why did the melons plan a big wedding? Because they cantaloupe!
