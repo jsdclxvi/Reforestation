@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## How come a man driving a train got struck by lightning? He was a good conductor.
