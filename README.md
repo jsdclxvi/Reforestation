@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## What time did the man go to the dentist? Tooth hurt-y.
