@@ -1,1 +1,2 @@
-## Why should you never trust a pig with a secret? Because it's bound to squeal.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
