@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## What do bees do after they are married? They go on a honeymoon.
