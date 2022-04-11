@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
