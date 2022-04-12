@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## Why did the m&m go to school? Because it wanted to be a Smartie!
