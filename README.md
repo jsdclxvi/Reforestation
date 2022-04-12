@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## I considered building the patio by myself. But I didn't have the stones.
